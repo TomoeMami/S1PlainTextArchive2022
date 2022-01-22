@@ -8,48 +8,6 @@ on:
   push
 jobs:
 
-  # UpdateS1:
-  #   runs-on: ubuntu-latest
-  #   steps:
-  #   - name: CheckoutRepo
-  #     uses: actions/checkout@v2
-  #     with:
-  #       ref: master
-  #   - name: Set up Python
-  #     uses: actions/setup-python@v2
-  #     with:
-  #       python-version: '3.x'
-  #   - name: Install dependencies
-  #     run: |
-  #       python -m pip install --upgrade pip
-  #       pip install setuptools wheel twine bs4 aiohttp requests
-  #   - name: AddThreads
-  #     env:
-  #       S1_COOKIE: ${{ secrets.S1_COOKIE }}
-  #     run: |
-  #       python autorun.py
-  #   - name: S1
-  #     env:
-  #       S1_COOKIE: ${{ secrets.S1_COOKIE }}
-  #     run: |
-  #       python s1.py
-  #   - name: commit
-  #     env:
-  #       TZ: 'CST-8'
-  #     run: |
-  #       sudo timedatectl set-timezone Asia/Shanghai
-  #       git config --global user.email trembleafterme@outlook.com
-  #       git config --global user.name TomoeMami
-  #       datime=$(date "+%Y年%m月%d日 %H:%M")
-  #       echo "git commit: 上传于 $datime"
-  #       if [ -n "$(git status -s)" ];then
-  #           git add .
-  #           git commit -m "[UpdateS1] 上传于 $datime" -a
-  #       fi
-  #   - name: Push changes
-  #     uses: ad-m/github-push-action@master
-  #     with:
-  #       github_token: ${{ secrets.GITHUB_TOKEN }}
   PushS1B:
     # needs: UpdateS1
     runs-on: ubuntu-latest
@@ -57,7 +15,7 @@ jobs:
     - name: CheckoutRepo
       uses: actions/checkout@v2
       with:
-        ref: master
+        ref: main
     - name: Set up Python
       uses: actions/setup-python@v2
       with:
