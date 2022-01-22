@@ -36,12 +36,18 @@ def find_time(file_path):
         res.append(post_time)
     return res
 
-def filter_time(input_list):
+def filter_time(troll,input_list):
     return_dict = dict(collections.Counter(input_list))
     for i in list(return_dict.keys()):
-        if return_dict[i] < 20 or i not in date_list:
+        if return_dict[i] < 45 or i not in date_list:
             return_dict.pop(i)
-    return return_dict
+        #外野数据量太大，提高筛选标准
+        elif troll =='troll' and return_dict[i] < 90:
+            return_dict.pop(i)
+    if(len(return_dict) <2):
+        return None
+    else:
+        return return_dict
 
 year = '2022'
 current_date = datetime.now().strftime("%Y%m%d")
@@ -59,10 +65,10 @@ for forum in forum_dict.keys():
                 thread_title = re.findall(r'\d{5,7}-?(.*)$',str(pa))[0]
                 for sub_pa in Path(pa).iterdir():
                     total_time = total_time + find_time(sub_pa)
-                result = filter_time(total_time)
+                result = filter_time(forum,total_time)
             else:
                 thread_title = re.findall(r'\d{5,7}-\d{1,3}-?(.*).md$',str(pa))[0]
-                result = filter_time(find_time(pa))
+                result = filter_time(forum,find_time(pa))
             if(result):
                 result_dict[forum][thread_title] = result
 mkdir('./S1A22/')
