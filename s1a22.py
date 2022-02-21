@@ -53,7 +53,7 @@ year = '2022'
 current_date = datetime.now().strftime("%Y%m%d")
 date_list = [pd.Timestamp(x).strftime("%Y-%-m-%-d") for x in pd.date_range(year+'0101',current_date)]
 
-forum_dict ={'troll':['外野交流分享','外野其他','外野文学历史讨论','外野新闻','a无法访问的帖子'],'game':['游戏区专楼','游戏区其他','游戏区分享交流','游戏区新闻'],'anime':['漫区其他','漫区交流分享','漫区新闻'],'vtb':['虚拟主播区散楼']}
+forum_dict ={'troll':['外野交流分享','外野其他','外野文学历史讨论','外野新闻','外野无法访问的帖子'],'game':['游戏区专楼','游戏区其他','游戏区分享交流','游戏区新闻'],'anime':['漫区其他','漫区交流分享','漫区新闻'],'vtb':['虚拟主播区散楼']}
 
 result_dict = {'troll':{},'game':{},'anime':{},'vtb':{}}
 
