@@ -35,6 +35,6 @@ jobs:
         source_folder: S1A22
         destination_repo: TomoeMami/tomoemami.github.io
         destination_folder: S1A22
-        user_email: 'trembleafterme@outlook.com'
-        user_name: 'TomoeMami'
+        user_email: 'Fake@email.com'
+        user_name: 'PushBot'
         commit_msg: '[GHA] Update the S1A22 files.'
