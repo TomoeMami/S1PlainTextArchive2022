@@ -5,7 +5,7 @@ name: S1A22
 
 on:
   schedule:
-    - cron: '0 21 * * *'
+    - cron: '0 20 * * *'
 jobs:
 
   PushS1B:
