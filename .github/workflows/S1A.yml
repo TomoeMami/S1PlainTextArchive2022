@@ -1,0 +1,41 @@
+# This workflow will upload a Python Package using Twine when a release is created
+# For more information see: https://help.github.com/en/actions/language-and-framework-guides/using-python-with-github-actions#publishing-to-package-registries
+
+name: S1A22
+
+on:
+  schedule:
+    - cron: '0 20 * * *'
+
+jobs:
+
+  PushS1B:
+    # needs: UpdateS1
+    runs-on: ubuntu-latest
+    steps:
+    - name: CheckoutRepo
+      uses: actions/checkout@v2
+      with:
+        ref: main
+    - name: Set up Python
+      uses: actions/setup-python@v2
+      with:
+        python-version: '3.9'
+    - name: Install dependencies
+      run: |
+        python -m pip install --upgrade pip
+        pip install setuptools wheel twine pathlib pandas
+    - name: DataGenerate
+      run: |
+        python ./s1a22.py
+    - name: Pushes S1B folder
+      uses: crykn/copy_folder_to_another_repo_action@v1.0.6
+      env:
+        API_TOKEN_GITHUB: ${{ secrets.API_TOKEN_GITHUB }}
+      with:
+        source_folder: S1A22
+        destination_repo: TomoeMami/tomoemami.github.io
+        destination_folder: S1A22
+        user_email: 'Fake@email.com'
+        user_name: 'PushBot'
+        commit_msg: '[GHA] Update the S1A22 files.'
