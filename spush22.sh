@@ -5,6 +5,4 @@ cd ~/S1PlainTextArchive2022
 git add .
 git commit -m "[脚本]自动上传于 $datime"
 echo "git commit: 上传于 $datime"
-git push
-echo "finished..."
 
