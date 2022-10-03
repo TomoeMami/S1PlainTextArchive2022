@@ -769,3 +769,102 @@ R}QKAA@H55IWNR1U{C)I**.jpg
 万代那DX超合金的关节？两条腿的都没整明白呢，还要搞四条腿的？</blockquote>
 超合金是超合金 之前的超合金横滨78都用齿轮关节了
 
+*****
+
+####  samuel.j  
+##### 74#       发表于 2022-9-29 14:49
+
+昨晚TAKARATOMY官网与蓝鸟号公布了高达联名TOMICA详细信息 [https://www.takaratomy.co.jp/products/tomica/gundamtomica/](https://www.takaratomy.co.jp/products/tomica/gundamtomica/)
+
+与6月公布后我在模型群里分析的基本相符，最初公布的白色要塞属于unlimited黑盒系列，另外两款黑盒产品是核心战机（起落架可拆卸还原飞行效果）与G战机（可惜履带没采用橡胶材质），每款售价1430日元
+
+<img src="https://img.saraba1st.com/forum/202209/29/144131ud1vzdxlj2lddjh4.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (17.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:41 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/144326p6xh6r6hxd6qg6bb.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (14.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:43 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/144333c1zmuj1qmzg15jup.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (14.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:43 上传
+
+虽然6月我猜到可能也会推出Dream系列产品，但是万万没有预想到Dream产品线竟然分为两条产品线，同样定价1430日元的越野车（附带骡鸭小人各一个）。吐槽：干脆TLV趁着明年逆鸭35周年出一个UC0093年宿命相会越野车限定版（附骡，鸭，不孝子与不孝女四小人），包准销量创造新高
+
+<img src="https://img.saraba1st.com/forum/202209/29/144648r6gcbckgywag03q3.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (13.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:46 上传
+
+三款由大河原邦男先生亲笔设计的角色车，各1210日元。
+
+RX-78-2（木有双黄色天线残念）
+
+<img src="https://img.saraba1st.com/forum/202209/29/144750pr2juzjk2hk2u90r.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (51.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:47 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/144757obt7t10t69ibbcih.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (15.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:47 上传
+
+MS-06扎古量产机
+
+<img src="https://img.saraba1st.com/forum/202209/29/144825psxxninx9nbb7t1n.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (34.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:48 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/144816c75xfskq0g13d0kx.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (13.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:48 上传
+
+MS-06夏亚专用扎古，红有三天线被惊异的改以鱼鳍天线还原
+
+<img src="https://img.saraba1st.com/forum/202209/29/144909z68kxkhvbxu1v3ux.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (39.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:49 上传
+
+<img src="https://img.saraba1st.com/forum/202209/29/144914griou8ozu8n6ik18.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (13.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-29 14:49 上传
+
