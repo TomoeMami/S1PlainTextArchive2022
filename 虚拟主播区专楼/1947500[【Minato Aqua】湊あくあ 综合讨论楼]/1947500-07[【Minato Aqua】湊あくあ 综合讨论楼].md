@@ -2200,3 +2200,485 @@ haha
 
 老板画大饼即视感
 
+*****
+
+####  nian1538  
+##### 9223#       发表于 2022-6-8 18:05
+
+ 本帖最后由 nian1538 于 2022-6-8 18:20 编辑 
+
+10号发翻唱
+
+底下一堆人猜優しい彗星但是那样的话感觉暗示的太明显了以以往的经验多半不是
+
+但是看到STA跑到这推下面开会又感觉可能是
+
+接下来的节奏大概就是11号live之后摸个几天然后SAO工商之前播个一下
+
+*****
+
+####  nian1538  
+##### 9224#       发表于 2022-6-10 12:32
+
+ 本帖最后由 nian1538 于 2022-6-10 13:30 编辑 
+
+[https://twitter.com/famitsu/status/1535109548675317760](https://twitter.com/famitsu/status/1535109548675317760)
+
+famit通这边信息量还比较大
+
+一句话总结：作为女仆和女主角和失忆贵族Theo/Teo谈跨越阶级的罗密欧与朱丽叶一样的禁断之恋
+
+有其他前辈后辈登场，实体版仅限Switch，店特很多种
+
+监修的重点是CG和店特好看
+
+对自己作为女主角的认识就是かわいく、おしとやかに、メイドとしてのふるまい
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 梅斯之围| + 1||
+
+查看全部评分
+
+*****
+
+####  Map-2  
+##### 9225#       发表于 2022-6-10 18:45
+
+那感觉不播的这段时间确实有在做很多事情
+又是新歌又是新gal
+
+*****
+
+####  nian1538  
+##### 9226#       发表于 2022-6-14 23:41
+
+印象：
+
+大赛的事情打完之后还没好好谈过（但是之后会不会再谈不知道）
+
+Apex现在完全不打
+
+8月已经在准备了
+
+这个月或许还要发翻唱，下个月还有一首会限翻唱
+
+韩国人很多
+
+好像还有什么但是我忘了
+
+*****
+
+####  越动天下  
+##### 9227#       发表于 2022-6-19 18:11
+
+应该是去工作室了吧 声音变了很多呀 感觉回来了
+
+*****
+
+####  渡鸦骑士  
+##### 9228#       发表于 2022-6-19 18:44
+
+ 本帖最后由 渡鸦骑士 于 2022-6-19 18:46 编辑 
+
+这个抽卡界面风格很眼熟应该不是我的错觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+笑死，开场cg就出现bug
+
+*****
+
+####  梅斯之围  
+##### 9229#       发表于 2022-6-19 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这次直播提前三天就开了直播间
+
+*****
+
+####  TiHaru  
+##### 9230#       发表于 2022-6-25 21:46
+
+饭盒给点给点
+
+*****
+
+####  andeloz  
+##### 9231#       发表于 2022-6-26 05:08
+
+零食照片+说夏天会忙工作 没啥好看的
+
+*****
+
+####  nian1538  
+##### 9232#       发表于 2022-6-30 10:54
+
+ 本帖最后由 nian1538 于 2022-7-1 00:14 编辑 
+
+细搜了一下这个エンターグラム居然是以前的TGL（说他家子品牌戏画可能还更有名一点）
+
+但是就算是戏画做而不是找的别人做，看起来戏画现在也做不出什么好游戏的样子
+
+光现在公布的店特就15种4张Drama CD了 感觉有点狠 Crew要被掏空了
+
+结果整出了18种店特5张Drama CD，这么喜欢录音声平时怎么不见
+
+负责剧本的是个之前给管人写企划台本的，原画是自由画师，SD老熟人，音乐多半也是这边找人，自己唱OPED、配音、录特典
+
+感觉エンターグラム那边的参与基本限于提供发行渠道和程序，有点进料加工的味道
+
+剧本很难有期望也很难评分
+
+下载版2420日元的话怎么也得做个5小时流程和3页CG吧
+
+*****
+
+####  越动天下  
+##### 9233#       发表于 2022-6-30 13:02
+
+后面还有几个店子 存个档<img src="https://p.sda1.dev/6/6d2ac83c1fee4e3ae463ccf97c13e107/CMP_20220630130052819.jpg" referrerpolicy="no-referrer">http://www.trader.co.jp/shopdetail/000000008194/
+https://ec.geo-online.co.jp/shop/g/g515540101/
+https://www.fammys.com/item_detail/209999542834/1/
+https://beak-takarajima.celosia.co.jp/shopdetail/000000004172/
+
+*****
+
+####  旧时代的扎比  
+##### 9234#       发表于 2022-6-30 18:51
+
+ 本帖最后由 旧时代的扎比 于 2022-6-30 19:31 编辑 
+
+ha
+
+*****
+
+####  nian1538  
+##### 9235#       发表于 2022-7-4 17:23
+
+红牛专栏：[https://www.redbull.com/jp-ja/minato-aqua-column-003](https://www.redbull.com/jp-ja/minato-aqua-column-003)
+
+主要是给游戏带货但还有点有意思的地方
+
+これまで、いろいろなジャンルのゲームを遊んできましたが、一番最初にハマったのがギャルゲーでした。
+
+(...)
+
+自身のYouTubeチャンネル100万人突破記念のご褒美として、夢をひとつ叶えてもらえる機会を頂きました。
+
+事細かな部分まで監修させていただき、ストーリーはもちろん、キャラクターのイラストや衣装、はたまた曲(BGM)まで、私の"好き"が詰まった作品になっています。
+
+ちなみに、ゲーム制作ってすごくたくさんの人が携わっているんです。ひとつひとつ綿密かつ丁寧に作られていく制作過程に感動したのと同時に、その大変さに頭が下がる思いでした。
+
+いま、世に出ている多くのゲームたちは、時代を超えて何年も長く愛され続けています。
+
+正直、発売日まで「本当にゲームになったの？　夢じゃないの？」と実感が湧かないのですが(笑)、私の生きた証のひとつとして今後たくさんの人たちに手に取ってもらい長く愛され続けていってほしいなと、そんな気持ちでいっぱいです。
+
+*****
+
+####  Scardy  
+##### 9236#       发表于 2022-7-5 21:32
+
+毎日暑い日々が続くね！クーラー必須になってる７月！
+
+なかなか配信できなくてごめんね；；忙しいの落ち着いたらまたやるよ！
+
+７月は、百合の花言葉をイメージして書き下ろしていただきました！✨
+
+*****
+
+####  梅斯之围  
+##### 9237#       发表于 2022-7-6 13:20
+
+有人摸到时间概念都没了
+
+*****
+
+####  qesto  
+##### 9238#       发表于 2022-7-7 21:50
+
+织女小姐今天怎么连个推都不发了
+
+*****
+
+####  椎名mahuyo  
+##### 9239#       发表于 2022-7-7 22:40
+
+这下发了
+
+image.png
+(98.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-7-7 22:39 上传
+
+<img src="https://img.saraba1st.com/forum/202207/07/223956uof64qxf2zof2cc7.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旧时代的扎比  
+##### 9240#       发表于 2022-7-14 10:15
+
+<img src="https://p.sda1.dev/6/ca02cff4f4d9c3f7433e80ef56770638/CMP_20220714101241961.jpg" referrerpolicy="no-referrer">
+第二周吃了个榜单尾气
+
+
+
+*****
+
+####  zpy393  
+##### 9241#       发表于 2022-7-16 18:47
+
+之前为了看直播买了三个月梯子，好嘛今天过期了终于播了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 9242#       发表于 2022-7-24 16:02
+
+ 本帖最后由 你谁 于 2022-7-24 16:04 编辑 
+
+纯纯的老样子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 唯一就是新衣服快了？还有一个外部的纪念live?
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你谁  
+##### 9243#       发表于 2022-7-27 11:11
+
+冠了
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  colodes  
+##### 9244#       发表于 2022-7-27 11:18
+
+ 本帖最后由 colodes 于 2022-7-27 11:20 编辑 
+
+-
+
+*****
+
+####  旧时代的扎比  
+##### 9245#       发表于 2022-7-27 12:16
+
+傻逼日本
+
+*****
+
+####  lightsuger  
+##### 9246#       发表于 2022-7-29 17:31
+
+[https://twitter.com/YouTubeJapan/status/1552474022239240194](https://twitter.com/YouTubeJapan/status/1552474022239240194)
+
+YouTube「湊あくあって結構パンクだろ？」<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpy393  
+##### 9247#       发表于 2022-8-8 21:15
+
+4周年了，终于这楼人也都润了
+
+总之还是周年快乐捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 9248#       发表于 2022-8-8 21:16
+
+<img src="https://img.saraba1st.com/forum/202208/08/211633ypqsjyshjpmjkhqj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-8-8 21:16 上传
+
+*****
+
+####  你谁  
+##### 9249#       发表于 2022-8-8 21:18
+
+还不是队伍不好带 主要是也没什么活了 不可能总拿那个游戏来水 我也没意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你谁  
+##### 9250#       发表于 2022-8-8 21:27
+
+ 本帖最后由 你谁 于 2022-8-8 21:33 编辑 
+
+说是因为和船长北海道旅游 水土不服 回来得了 味觉好一些 瘦了两公斤 味觉也好一些
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  saraba7th  
+##### 9251#       发表于 2022-8-8 21:36
+
+夸和船到北海道去干什么了
+
+*****
+
+####  nevp  
+##### 9252#       发表于 2022-8-8 21:38
+
+复活<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 9253#       发表于 2022-8-8 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56982430&amp;ptid=1947500" target="_blank">saraba7th 发表于 2022-8-8 21:36</a>
+夸和船到北海道去干什么了</blockquote>
+原来船长是说去工作 你夸我没听清楚 应该是没说
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星の守  
+##### 9254#       发表于 2022-8-8 22:11
+
+还在，没润呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旧时代的扎比  
+##### 9255#       发表于 2022-8-9 11:54
+
+看到galgame的op就想起了sppl的那个，虽然想要那个质量就是做梦
+
+*****
+
+####  lightsuger  
+##### 9256#       发表于 2022-8-9 15:03
+
+[https://prtimes.jp/main/html/rd/p/000000600.000006410.html](https://prtimes.jp/main/html/rd/p/000000600.000006410.html)
+
+【Simejiランキング】Z世代が選ぶ!!「好きなVTuberTOP10」
+
+*****
+
+####  Map-2  
+##### 9257#       发表于 2022-8-9 22:23
+
+JIN写的这首真好听啊
+
+个人感觉爆了火锅P最近量产的几个holomem原创曲
+
+*****
+
+####  你谁  
+##### 9258#       发表于 2022-8-9 22:43
+
+ 本帖最后由 你谁 于 2022-8-9 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996679&amp;ptid=1947500" target="_blank">Map-2 发表于 2022-8-9 22:23</a>
+JIN写的这首真好听啊
+
+个人感觉爆了火锅P最近量产的几个holomem原创曲</blockquote>
+看我昨天对jin爹的评价 绝对就知道他的水平了 在你木口请的p主里也没几个高的了 （还有mikito这种写的太频繁的p主） 只能说jin写的这个歌还没到第三专的水平 但是也应该是有对人的妥协吧
+
+—— 来自 Xiaomi M2102K1AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Map-2  
+##### 9259#       发表于 2022-8-10 00:21
+
+ 本帖最后由 Map-2 于 2022-8-10 00:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56996922&amp;ptid=1947500" target="_blank">你谁 发表于 2022-8-9 22:43</a>
+
+看我昨天对jin爹的评价 绝对就知道他的水平了 在你木口请的p主里也没几个高的了 （还有mikito这种写的太 ...</blockquote>
+光看单曲封面就觉得很绝
+
+这哪是小啊夸，我看明明就是啊夸和男主人公的女儿罢！（如果是的话我觉得这个gal上限可以很高）
+<[img src="https://s2.loli.net/2022/08/10/8q6zrct74eI2K5o.jpg" referrerpolicy="no-referrer">
+
+加上JIN的这个高质量OP
+
+这gal真的真的真的让我蛮期待的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+没PC太可惜了
+
+*****
+
+####  面具13  
+##### 9260#       发表于 2022-8-29 16:24
+
+翻唱超天酱的歌，暗示退网才是真结局。虽然现在这频率跟退网差别也不大<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer"> 同为躁郁粉蓝挑染，相同的结末也挺自然
+
+*****
+
+####  蓬莱广告  
+##### 9261#       发表于 2022-9-1 10:13
+
+可是这gal男主名字固定不能改有点膈应啊
+
+*****
+
+####  ylssb10438  
+##### 9262#       发表于 2022-9-10 12:36
+
+不用梯子，看看这楼就能看出直播频率<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  17119854  
+##### 9263#       发表于 2022-9-15 22:53
+
+<img src="https://img.saraba1st.com/forum/202209/15/225349irfedfddtxvlv7yf.jpg" referrerpolicy="no-referrer">
+
+<strong>FcsSsg6agAAwa4n.jpg</strong> (584.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-15 22:53 上传
+
+*****
+
+####  旧时代的扎比  
+##### 9264#       发表于 2022-10-8 20:29
+
+怎么Aquart5快递都到了网上还是没有扫图的，过气成这样了嘛
+
+
+
+*****
+
+####  zpy393  
+##### 9265#       发表于 2022-10-8 20:40
+
+这个月上旬居然播了两次，其中一次还是游戏回，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Scardy  
+##### 9266#       发表于 2022-10-9 08:56
+
+好起来指半月一播变一星期一播<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  psnsic8nag  
+##### 9267#       发表于 2022-10-9 10:49
+
+快变2号Mea了,开台就歌回
+
