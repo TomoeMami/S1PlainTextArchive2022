@@ -9798,3 +9798,134 @@ selection当然是自选吧</blockquote>
 这样的啊，感谢解答。
 这次也领完服装券，就摸了，攒体等个自推<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  吉诺爱比利  
+##### 7011#       发表于 2022-10-7 00:15
+
+才发现井渣可以换繁中的卡，我说怎么miki突然多了一张没见过的卡
+
+
+
+*****
+
+####  花开安菲路  
+##### 7012#       发表于 2022-10-7 13:43
+
+miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果忘了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我才看到任务里一堆过去未参加活动的成就，太多了几乎都是奖励称号的，就有点懒得搞，
+在狂打なんどでも笑おう ，先把送的衣服拿了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  超法拉  
+##### 7013#       发表于 2022-10-8 12:46
+
+摸鱼摸了两年，最近手头紧不打算充钱了，发现不算100次曲子这种矿可能都有1井多甚至2井……挖的我心情很复杂
+
+
+
+*****
+
+####  cckuku  
+##### 7014#       发表于 2022-10-8 17:51
+
+又有超得？我怎么记得你游的超得是一年两次的呢？周年一次新年一次
+
+
+
+*****
+
+####  DioxinsX  
+##### 7015#       发表于 2022-10-8 18:20
+
+要等到明年周年活动过后啊？<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/08/181846f01wv07jwo5gatqw.jpg" referrerpolicy="no-referrer">
+
+<strong>00757cdmgy1h6y0q097bmj30qt0eigyh.jpg</strong> (114.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-8 18:18 上传
+
+
+
+*****
+
+####  镜hinata  
+##### 7016#       发表于 2022-10-8 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813970&amp;ptid=1484979" target="_blank">cckuku 发表于 2022-10-8 17:51</a>
+又有超得？我怎么记得你游的超得是一年两次的呢？周年一次新年一次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是差不多3个月一次
+
+
+
+*****
+
+####  萩原组土狼p  
+##### 7017#       发表于 2022-10-9 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813970&amp;ptid=1484979" target="_blank">cckuku 发表于 2022-10-8 17:51</a>
+
+又有超得？我怎么记得你游的超得是一年两次的呢？周年一次新年一次</blockquote>
+带限定的超得是一年两次
+
+普通超得差不多是3个月一次
+
+
+
+*****
+
+####  THY_HABITΑΤ  
+##### 7018#       发表于 2022-10-9 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我擦，你游太恐怖了，想着メグエレ出一张就跑，结果直接井了。
+
+
+
+*****
+
+####  花开安菲路  
+##### 7019#       发表于 2022-10-10 12:47
+
+果然这期活动都在摸，昨天紧急打了个10w就进2500了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小笠原早紀  
+##### 7020#       发表于 2022-10-11 14:06
+
+刚肝完13人组活是这样的，体力药都烧干了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  花开安菲路  
+##### 7021#       发表于 2022-10-12 14:12
+
+商店里能换72双马尾SSR和志保黑猫SR了，然而并没有双马尾，我也没花🌸了
+
+
+
+*****
+
+####  花开安菲路  
+##### 7022#       发表于 2022-10-14 13:14
+
+ 本帖最后由 花开安菲路 于 2022-10-14 13:17 编辑 
+
+【[motion test]CHEER UP! HEARTS UP! 望月杏奈 SHS活动服】 [https://www.bilibili.com/video/B ... 90917b118054c31d1ac](https://www.bilibili.com/video/BV1Je4y1S72Z?share_source=copy_web&amp;vd_source=ddbf30925f48090917b118054c31d1ac)
+
+杏奈可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这是提取游戏动作代码，然后加了点物理渲染吧，游戏里有这效果就好了。
+
+去油管搜了下原作者，好像是个韩国杏奈P。
+
