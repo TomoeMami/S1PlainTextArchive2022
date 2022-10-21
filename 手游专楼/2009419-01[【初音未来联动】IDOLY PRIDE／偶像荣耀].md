@@ -8215,3 +8215,37 @@ suzu，我的新时代女主角。。。
   -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
 或许等到韩服关服后，就能加入日服列表了（手动邪笑
 
+*****
+
+####  Aureth  
+##### 742#       发表于 2022-10-18 18:35
+
+<blockquote>最后は広范囲のざっくりとした书き方で申し訳ないですが、ブルームピースを使う场合は初期の★5アイドルに投资するのも手です。理由は★10まで才能开花させた后にさらに同じアイドルを引くことでブルームピースの回収ができるからです。</blockquote>
+在某攻略站看到这段话，想问问满开花的卡抽到的时候给多少开花碎呀。以及开花pt medal一般是角色登场多久以后可以用，半年吗？
+
+
+
+*****
+
+####  伊布桑  
+##### 743#         楼主| 发表于 2022-10-18 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976375&amp;ptid=2009419" target="_blank">Aureth 发表于 2022-10-18 18:35:06</a>
+在某攻略站看到这段话，想问问满开花的卡抽到的时候给多少开花碎呀。以及开花pt medal一般是角色登场多久 ...</blockquote>原五星的满星卡，再重复给100碎，也就是相当于给你一张任意一张已有五星
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Aureth  
+##### 744#       发表于 2022-10-18 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977097&amp;ptid=2009419" target="_blank">伊布桑 发表于 2022-10-18 19:23</a>
+
+原五星的满星卡，再重复给100碎，也就是相当于给你一张任意一张已有五星
+
+  -- 来自 能搜索的 Stage1官方 A ...</blockquote>
+那感情好，我现在拿我手上的开花PT能直接把sakura怼满，现在就直接拉满似乎最赚，后面辅助券抽到了可以拿去喂限定。
+
