@@ -877,3 +877,10 @@ boss全身模型都有物理判定而不是2d游戏标准的脚下圆圈，所�
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  李喜睡  
+##### 91#       发表于 2022-10-23 18:37
+
+前面玩着还挺有2d塞尔达感觉的，后面就突然一转变成硬核解密游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
