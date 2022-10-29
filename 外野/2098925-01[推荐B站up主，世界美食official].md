@@ -1240,3 +1240,12 @@
 
 —— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  KaneL  
+##### 134#       发表于 2022-10-26 08:31
+
+<blockquote>skyuni 发表于 2022-10-14 19:38
+看了三姐那期，一看肤色和&amp;#x7 ...</blockquote>
+你想想印度那国情，也就中产富人区域能有三姐敢于开店了
+
