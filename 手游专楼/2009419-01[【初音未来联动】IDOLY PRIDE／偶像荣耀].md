@@ -8249,3 +8249,12 @@ suzu，我的新时代女主角。。。
   -- 来自 能搜索的 Stage1官方 A ...</blockquote>
 那感情好，我现在拿我手上的开花PT能直接把sakura怼满，现在就直接拉满似乎最赚，后面辅助券抽到了可以拿去喂限定。
 
+*****
+
+####  最强惠酱  
+##### 745#       发表于 2022-10-30 03:39
+
+kana这个角色真是演活了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
