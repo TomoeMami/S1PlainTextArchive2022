@@ -1022,3 +1022,19 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">有雌小鬼诶，话说每次最吸引我的是看官网的角色介绍，各种乱七八糟有用没用的详细设定，三围数据都要配一句话
 
+*****
+
+####  modedd  
+##### 98#       发表于 2022-10-29 16:45
+
+这周给所有角色都更新了能有十几分钟的语音，奶厂这预告都快顶的上设定集了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  萌二  
+##### 99#       发表于 2022-10-30 19:56
+
+太太们比女儿骚<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
