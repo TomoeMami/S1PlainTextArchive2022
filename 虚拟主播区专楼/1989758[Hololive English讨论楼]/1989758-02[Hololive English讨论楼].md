@@ -3645,3 +3645,10 @@ ame说组织了包括tempus id ed的百战天虫联动
 
 这mv适合拿来做个wallpaper engine的壁纸，虽然我一直觉得这种反人类上下漂浮挺奇怪的..
 
+*****
+
+####  M1NG  
+##### 1834#       发表于 2022-11-1 13:19
+
+en的各位配音实在是有点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不过第二集的故事写的真好，看的我大中午汗毛耸立
+
