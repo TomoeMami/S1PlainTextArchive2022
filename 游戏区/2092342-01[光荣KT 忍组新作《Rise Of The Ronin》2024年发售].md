@@ -1875,3 +1875,16 @@ Xdev的高级制作人Jason Stewart也在推特上表示对此次合作十分激
 
   有点难为欧美工作室要折腾日厂的破烂自研了
 
+*****
+
+####  Piano-Forest  
+##### 202#         楼主| 发表于 2022-11-1 18:46
+
+<img src="https://p.sda1.dev/8/db97f7372c104755a127dfef410c0b05/acp3e-t7zu6-019.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d40d9df1072c17d9212bd348e9f85e6e/acp3e-t7zu6-020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9a5a8630e091dd22c7503ac3518a0159/acp3e-t7zu6-021.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0834e59ac85b9347a09512cfa7a09655/acp3e-t7zu6-031.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d5afd59d616ed0510c69d75eb78d5f2e/acp3e-t7zu6-032.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1dbf635c59ee2225e1f8ce8a20796c60/acp3e-t7zu6-033.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/13a562c0001df91329bbdbdb6dee1678/acp3e-t7zu6-027.jpg" referrerpolicy="no-referrer">
+
