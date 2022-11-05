@@ -7788,3 +7788,98 @@ cd有72就能自动遗迹140的老太婆 一点不能少 怎么凑出来都行 �
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">跑了十几张1060差点挂了，等我换新显卡再试试
 
+*****
+
+####  smdzh2  
+##### 800#       发表于 2022-10-27 11:06
+
+国服一周年了，顺便坏女人的衣服全部入手，这女人真的好大，额不是，好屑啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d78a78b3eaf1b1d9be47839368992488/CMP_20221027110435512.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  rgauss  
+##### 801#         楼主| 发表于 2022-10-27 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看见这皮肤就想起来棒子开始把球单独建模 战斗的时候笑死我了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  rgauss  
+##### 802#         楼主| 发表于 2022-10-28 19:35
+
+<img src="https://p.sda1.dev/8/5d9c8eb165247f3b5a11038dfa04cfbe/CMP_20221028193526640.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  要嗝屁了  
+##### 803#       发表于 2022-10-28 20:00
+
+椅子不表示一下吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  rgauss  
+##### 804#         楼主| 发表于 2022-10-28 20:10
+
+椅子:我要看舰桥的诱惑 勿cue
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  rgauss  
+##### 805#         楼主| 发表于 2022-10-31 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">操了 这新角色 产能太低所以每个立绘都要利用是吧 
+工作室美术产能实在不行 就向nexon和紫龙求助吧
+通行证新角色感觉好棒
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  rgauss  
+##### 806#         楼主| 发表于 2022-11-1 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">屯一个通行证和俩跃入的体力应该差不多 中途只买过俩次黑票
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  拍不到脑袋  
+##### 807#       发表于 2022-11-1 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也差不多，只买黑票，每月30金票，然后就是活动送的各种体力加上升级和成就。
+
+
+
+*****
+
+####  smdzh2  
+##### 808#       发表于 2022-11-2 18:49
+
+任务完成喜提100金票，想洗cd，命中强化回避强化攻击强化防御强化暴击强化体力强化攻速强化暴伤强化命中强化体力强化
+异界事务所，卸载。
+
