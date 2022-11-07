@@ -1655,3 +1655,16 @@ JC方面，1火2火Charger+探险者，3火C7,4火Camaro+直升机，5火SWAT，
 
 新演示来看改装和涂装系统似乎和21差不多
 
+*****
+
+####  proselyte  
+##### 82#         楼主| 发表于 2022-11-4 23:42
+
+ 本帖最后由 proselyte 于 2022-11-4 23:46 编辑 
+
+官网放出的新信息联动了一些乱七八糟的东西
+
+Champion和Vans、PUMA和FILA、PalaceBorn x Raised以及Versace等其他的
+
+个人感觉大概不如21
+
