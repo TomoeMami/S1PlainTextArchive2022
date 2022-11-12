@@ -7883,3 +7883,12 @@ cd有72就能自动遗迹140的老太婆 一点不能少 怎么凑出来都行 �
 任务完成喜提100金票，想洗cd，命中强化回避强化攻击强化防御强化暴击强化体力强化攻速强化暴伤强化命中强化体力强化
 异界事务所，卸载。
 
+*****
+
+####  rgauss  
+##### 809#         楼主| 发表于 2022-11-9 23:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">如果冰女知道学会那点破事不撕破脸皮 那我怀疑编剧脑子有点问题
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
