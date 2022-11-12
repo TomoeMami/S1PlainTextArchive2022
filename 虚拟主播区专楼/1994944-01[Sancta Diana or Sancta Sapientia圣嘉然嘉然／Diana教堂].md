@@ -3900,3 +3900,20 @@ We Shall Meet Again,Under The Moon来自: iPhone客户端
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">好想抱抱小然
 
+*****
+
+####  woui003woui  
+##### 483#       发表于 2022-11-9 12:53
+
+有的时候在想
+
+那些我看到以后很难过的言论 也会让你伤心吗
+
+那些悲伤的时刻被你藏到了哪里呢
+
+反复叠加的伤害和质问会让你动摇吗
+
+撇开一切之后 你又是怎样振作起来的呢
+
+如果可以见证的话 请让我一直见证
+
