@@ -10489,3 +10489,70 @@ DLC2有影子了么……
 
 Playground工作室宣布将于11月8日为《极限竞速 地平线5》推出光线追踪、FSR以及DLSS等功能。与此同时，游戏的第二个大型扩展包正在制作中，预计2023年初上线。 ​​​
 
+*****
+
+####  pl0okm  
+##### 2494#       发表于 2022-11-9 03:56
+
+反射品质我开的中，之前开高后车辆过颠簸路面时画面也跟着抖，这问题好像和帧数也有关 越高越抖，不知道修没修 没测。
+
+简单测了下，2k关光追 dlaa锐化0.5完全不如dlss质量0.5，帧数更低车辆锯齿也更多，跑分的橙色c8边缘的锯齿变化明显，这车辆锯齿终于靠dlss控制的差不多了，毕竟连载入时的官方某风火轮插图的车屁股都有锯齿。
+
+两者的问题在于拖影，车辆没看出问题，跑分到下雨路段的几处路灯顶部像开了斯安威斯坦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+dlss超高性能没法用，跑分发车的前车屁股糊成一片，加一档到性能也有些糊。
+
+平均和质量的帧数差距不大，区别没细看，好像锐化0.5让画面都有点假？1.0时假的很明显，0.3没试
+
+光追超高对环境没影响？没看出来开关的区别。而车体的光追效果在比赛时又不会注意到<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+帧数这块：
+
+关光追 dlss质量和平衡0.5差不多，帧数相比关dlss下降很小。性能0.5和关dlss帧数一样。
+
+光追超高时帧数下降明显
+
+
+
+*****
+
+####  gzGaryC  
+##### 2495#       发表于 2022-11-9 06:42
+
+劲啊，天选2的残血3060在其他设置不变的情况下把光追调到超高，开夜间阴影，DLSS质量，分辨率用DLDSR拉到1440p基本不会掉到60帧以下了；把阴影从高调到低还可以把分辨率拉到1620p。原本1080p一进瓜托华纳帧数就没上过60<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  920619lqy  
+##### 2496#       发表于 2022-11-9 08:59
+
+新增成就的触发条件是不是有问题，steam这边是对的，但是关联xbox那边是错的，做made in mexico结果解锁的几个成就都是horizon origins的
+
+
+
+*****
+
+####  cxasuka  
+##### 2497#       发表于 2022-11-10 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dlss开不开好像对fps没啥影响？？笔记本3070在1440p下画质开满了，光追极致，结果感觉开不开dlss都一样？
+
+
+
+*****
+
+####  天神十三煞  
+##### 2498#         楼主| 发表于 2022-11-11 20:49
+
+这大力水手和防晒乳更新了个寂寞
+
+不开光追限制帧数风扇都巨响，说好的消耗更低呢，
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+而且两边都是一开好多残影，
+
+尤其开劲敌的幽灵车和大逃杀，抖忽悠
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
