@@ -8528,3 +8528,14 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 目测大概这样，冲过去帮德凯。但飞的太近被一尾巴抽下去了。</blockquote>
 哇浪，你好会画兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Case  
+##### 746#       发表于 2022-11-14 01:20
+
+舞台剧 STAGE3 还挺好看的。
+
+不过斯菲亚的设定感觉越来越强了。
+
+这舞台剧里直接夺取剑悟的力量复制了个特利迦出来。
+
