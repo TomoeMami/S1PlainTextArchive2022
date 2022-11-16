@@ -1280,3 +1280,185 @@ image.png
 《轻羽飞扬》和《少女与战车缎带武士》都是他 ...</blockquote>
 画风和分镜确实都挺像缎带武士的
 
+*****
+
+####  windhawind2  
+##### 112#       发表于 2022-4-30 15:37
+
+最新话汉化有了 三强最后之一稻荷一堂堂登场 和游戏里反差较大是个暴躁老妹性格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  轮太  
+##### 113#       发表于 2022-4-30 23:34
+
+CB登场了啊，其实她和皇帝之间的关系很微妙呢
+
+*****
+
+####  klzxs  
+##### 114#       发表于 2022-5-1 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好凶
+
+*****
+
+####  isummon  
+##### 115#         楼主| 发表于 2022-5-1 13:53
+
+<img src="https://img.saraba1st.com/forum/202205/01/135155vtcnuu5wscpp59c1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (710.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-5-1 13:51 上传
+
+其它马娘是拼到极限才会暴露尖牙，稻荷一在常态下就要咬人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和千代汪比起来这就是疯狗流啊
+
+*****
+
+####  xwr  
+##### 116#       发表于 2022-5-1 15:03
+
+CB说话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  披头破落户  
+##### 117#       发表于 2022-5-1 15:22
+
+不知道为什么cy一直在保持cb的神秘感，连句话都不敢让多说
+
+—— 来自 Xiaomi 22011211C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  isummon  
+##### 118#         楼主| 发表于 2022-5-1 19:46
+
+为了吊着大家胃口好抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isummon  
+##### 119#         楼主| 发表于 2022-5-14 16:44
+
+别加速了，鞋都给你快跑掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/6/635cde8d6143f04bae00bb0250c7b6e2/CMP_20220514164414778.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  klzxs  
+##### 120#       发表于 2022-8-1 23:38
+
+<img src="https://p.sda1.dev/6/2671692419e91cc70faaeb5c24cc7973/QQ截图20220801231817.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/987775bdc8804db677bc69541e1bc6a6/QQ截图20220801232109.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/6/ea041a3f075a7fdf0eab81ec580e94ea/QQ截图20220801232126.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">难得阿尔丹高光回，结果遇上新挂了
+
+还有稻荷在漫画也太凶了
+
+
+
+*****
+
+####  klushyo  
+##### 121#       发表于 2022-8-2 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=55656805&amp;ptid=2052372" target="_blank">披头破落户 发表于 2022-5-1 15:22</a>
+不知道为什么cy一直在保持cb的神秘感，连句话都不敢让多说
+
+—— 来自 Xiaomi 22011211C, Android 12上的 S ...</blockquote>
+CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那CB只能冷处理。
+
+*****
+
+####  isummon  
+##### 122#         楼主| 发表于 2022-8-2 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56901572&amp;ptid=2052372" target="_blank">klzxs 发表于 2022-8-1 23:38</a>
+难得阿尔丹高光回，结果遇上新挂了
+
+还有稻荷在漫画也太凶了</blockquote>
+这稻荷一也就从小玩到大的朋友才愿意当她的训练员了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MONSTERS  
+##### 123#       发表于 2022-11-12 13:45
+
+<img src="https://img.saraba1st.com/forum/202211/12/134527cqh6xopxm6j6hq6q.png" referrerpolicy="no-referrer">
+
+<strong>FhSp6hracAQZyIL.png</strong> (229.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 13:45 上传
+
+[https://twitter.com/KUZUMI777/status/1590519844252045312](https://twitter.com/KUZUMI777/status/1590519844252045312)
+[https://twitter.com/KUZUMI777/status/1590522301476638723](https://twitter.com/KUZUMI777/status/1590522301476638723)
+
+来年の春に入れ替わりでシングレ终わる説嗫かれてるみたいですが
+
+余程のことが无ければ普通に続くのでご安心を
+
+余程のこと例︰地球が灭びる・打ち切りになるなど
+
+まだ「奴」を描いていない
+
+
+
+*****
+
+####  isummon  
+##### 124#         楼主| 发表于 2022-11-14 00:04
+
+<img src="https://img.saraba1st.com/forum/202211/14/000421rsa62ln096egzzg3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 00:04 上传
+
+<img src="https://img.saraba1st.com/forum/202211/14/000428d14uu93cu3cq9c43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (532.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 00:04 上传
+
+这漫画越来越恐怖了（
+
+
+
+*****
+
+####  zhujinghang1994  
+##### 125#       发表于 2022-11-14 00:28
+
+只要我把脸涂黑，我就可以不画细节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  klzxs  
+##### 126#       发表于 2022-11-14 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漫画的三强，三人有三种不同的魔王风格，挺有趣的
+
+
+
+*****
+
+####  ardito  
+##### 127#       发表于 2022-11-14 03:06
+
+养了大半年了，再放一阵子算了，上次好像看到小玉藻退役<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
