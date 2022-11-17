@@ -14741,3 +14741,12 @@ WING以外其他模式都没解开，光用STEP也能进行手头最强的育成
 
 问题很尖锐，算是基本情报全掌握下的情况下的对谈了。
 
+*****
+
+####  shadowof  
+##### 2678#         楼主| 发表于 2022-11-14 11:10
+
+<img src="https://i.imgur.com/hrfnDvE_d.webp?maxwidth=640&amp;shape=thumb&amp;fidelity=medium" height="456" id="aimg_OACET" onclick="zoom(this, this.src, 0, 0, 0)" width="640"/)
+
+5thキービジュアル
+
