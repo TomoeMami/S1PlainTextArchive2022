@@ -3922,3 +3922,29 @@ DGG预定2年左右
 —— 来自 S1Fun</blockquote>
 这么一说确实，但是明明爱精灵是可以和人类好好相处的数码兽，好想要HE，前辈和海蜇兽的也行！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  格雷殿下  
+##### 381#       发表于 2022-11-13 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推新手环是这样推的吗
+
+百度看到说旧APP不得好用了，
+
+要用新的一套了
+
+新的还得300+，
+
+说是生活防水，
+
+卜知道电量能坚持多久
+
+
+
+*****
+
+####  月夜凝雪  
+##### 382#       发表于 2022-11-14 19:59
+
+记忆中是不是除了无印中途没用过跃迁进化？这次换新手环后完全体应该没有时限了吧之前大概就是这个的伏笔
+
