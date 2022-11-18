@@ -1543,3 +1543,146 @@ p5r是2020年入选最佳rpg，不过那年时候ff7r拿了，也正常
 
 正义之怒提名都没有的奖，XB3凭什么能拿？<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+*****
+
+####  芷雅居  
+##### 154#       发表于 2022-11-15 08:42
+
+该挖一手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 155#       发表于 2022-11-15 08:47
+
+<blockquote>whzfjk 发表于 2022-8-16 21:05
+我想看高桥哥哥怀疑人生痛苦流涕的样子，你不是爱选吗，再选选啊</blockquote>
+チ、高桥哭戏逃走了
+
+*****
+
+####  nukejoker  
+##### 156#       发表于 2022-11-15 08:47
+
+<img src="https://s1.imagehub.cc/images/2022/11/15/QQ20221115084609.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  killbillwillil  
+##### 157#       发表于 2022-11-15 08:56
+
+看到自己回的帖子，乐
+
+*****
+
+####  Onelooker  
+##### 158#       发表于 2022-11-15 08:59
+
+来喽，以后清算起手就是你什么提名，辩不过辩不过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  langleizhi  
+##### 159#       发表于 2022-11-15 09:39
+
+我也看到了当时自己还没被XB3伤到的帖子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Weiz97  
+##### 160#         楼主| 发表于 2022-11-15 19:05
+
+真给高桥骗到了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  余情自取  
+##### 161#       发表于 2022-11-15 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  纯狐娘娘  
+##### 162#       发表于 2022-11-15 23:09
+
+TGA快到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cc-2  
+##### 163#       发表于 2022-11-15 23:14
+
+预言家刀了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  何处分可  
+##### 164#       发表于 2022-11-15 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，急也没用
+
+
+
+*****
+
+####  LamdaHT  
+##### 165#       发表于 2022-11-15 23:45
+
+还起手就是提名辩不过<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真是究极被迫害妄想症
+
+
+
+*****
+
+####  PigMourne  
+##### 166#       发表于 2022-11-16 00:02
+
+乐，对泥潭高桥毒唯来说，xb3拿年度rpg是不是比破晓拿更破防<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  jxzeroga0  
+##### 167#       发表于 2022-11-16 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455078&amp;ptid=2087305" target="_blank">PigMourne 发表于 2022-11-16 00:02</a>
+
+乐，对泥潭高桥毒唯来说，xb3拿年度rpg是不是比破晓拿更破防</blockquote>
+p5都能拿的野鸡奖，xb3拿一拿又有什么所谓，插 逼2系列最佳的质量才不在意这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  daosilin  
+##### 168#       发表于 2022-11-16 00:21
+
+赛博精神病帖？泥潭法环被xb3爆杀确实挺典的
+
+
+
+*****
+
+####  无攻不受鹿  
+##### 169#       发表于 2022-11-16 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">XB3的室内结构？都市里确实有几个地方要爬梯子没错啦……
+
