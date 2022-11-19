@@ -11095,3 +11095,741 @@ kirara你说是因为麻里佳都比说是因为灯靠点谱、、</blockquote>
 其实都一回事，只不过灯暂&amp;# ...</blockquote>
 就像楼上说的，kirara这例子根本看不出有灯的影响，而提到的那些live有没有受影响才是更为直观的
 
+*****
+
+####  Piano-Forest  
+##### 6718#       发表于 2022-11-13 09:55
+
+[https://twitter.com/alp315_d/status/1591531957548363776](https://twitter.com/alp315_d/status/1591531957548363776)
+<img src="https://p.sda1.dev/8/f69e6aad756034181d684f3cb3ac58d0/20221113_095430.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  li463900160  
+##### 6719#       发表于 2022-11-13 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58242433&amp;ptid=1959558" target="_blank">hijack997 发表于 2022-11-2 16:18</a>
+
+新声优估计还是SMA的吧。</blockquote>
+9成SMA，能塞人绝对能塞，盲猜一个最近强推的水野朔，也就是山田凉，不过其实很不搭，我前面去SMA看了下还剩下的新人也就一个感觉稍微搭上去的。
+
+但是这是SMA，你要做好强塞的准备
+
+
+
+*****
+
+####  砂糖砂糖  
+##### 6720#       发表于 2022-11-13 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58410415&amp;ptid=1959558" target="_blank">li463900160 发表于 2022-11-13 10:05</a>
+9成SMA，能塞人绝对能塞，盲猜一个最近强推的水野朔，也就是山田凉，不过其实很不搭，我前面去SMA看了下 ...</blockquote>
+楠木灯是婴儿肥，水野朔那可是大妈脸，我记得谁评价23岁长了33岁的脸，太别扭了
+
+
+
+*****
+
+####  DarthAka  
+##### 6721#       发表于 2022-11-13 14:37
+
+粉丝要满意——95～00年出生，有唱跳经验和基本演技，外表声音都是雪菜那个元气型，没参加过爱马仕，最好有点粉，在虹虹里还有熟人……缩圈缩成这样已经不剩几个了，人家还不一定愿意来，所以有得看就知足吧
+
+
+
+*****
+
+####  砂糖砂糖  
+##### 6722#       发表于 2022-11-13 14:47
+
+主要是万代这都让SMA坑一回了，感觉不会二次跳坑了，找个自己控制力强的更符合，粉丝满不满意倒是不在考虑范围
+
+
+
+*****
+
+####  梶原ひかり  
+##### 6723#       发表于 2022-11-13 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">最大可能性还是裂啦三期挑剩下 或者Apollo Bay的谁吧 
+
+
+
+*****
+
+####  仟音一心  
+##### 6724#       发表于 2022-11-13 19:38
+
+我们仨之缭乱小马路
+
+<img src="https://img.saraba1st.com/forum/202211/13/193845qccos8yo17t7ni88.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5D689A0A-C231-47E3-94C1-99AD1BB160E9.jpeg</strong> (74.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 19:38 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/193845rknf4knk4444r4su.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>098F1D31-5A49-44E1-995F-79BDE4C704C4.jpeg</strong> (137.87 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 19:38 上传
+
+
+
+*****
+
+####  Piano-Forest  
+##### 6725#       发表于 2022-11-13 19:54
+
+[https://twitter.com/ohkowai/status/1591717293205356545](https://twitter.com/ohkowai/status/1591717293205356545)
+
+璃奈ちゃん誕生日おめでとうぅ〜！、！！
+
+#天王寺璃奈生誕祭2022
+
+#天王寺璃奈誕生祭2022
+
+#天王寺璃奈
+
+#虹ヶ咲
+<img src="https://p.sda1.dev/8/0d42865548341f7a4721fd4e98138508/20221113_195141.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/alp315_d/status/1591531957548363776](https://twitter.com/alp315_d/status/1591531957548363776)
+<img src="https://p.sda1.dev/8/f69e6aad756034181d684f3cb3ac58d0/20221113_095430.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 6726#       发表于 2022-11-13 20:31
+
+<img src="https://img.saraba1st.com/forum/202211/13/203051nknmcnik126ny5yy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>255B5562-D322-4370-8F41-58DABDC559BC.jpeg</strong> (215.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203051n997ym8u066moy5y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>80CDD924-DA38-4774-9B43-FFD4BD2D6961.jpeg</strong> (341.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:30 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203101tyvzi02bfbvsb0xb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B5EBCEEC-B75D-4188-B0DC-FAF386F2B8C7.jpeg</strong> (590.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203127p0zkaa77aaukuzk7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EFEDF8EE-CBDA-4063-83F5-A69E5DB5A345.jpeg</strong> (313.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203127saagk6i6hbo5h5ua.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>786BF3C4-C216-426D-B0FA-1F86EF956A61.jpeg</strong> (279.41 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203137uyhhn1nd38skfus9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>041C3A01-B6E1-493D-9049-B99FEFD5ABE5.jpeg</strong> (465.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203137a5ukk6614yh5k31k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F69EC16A-AB6D-4B6B-9CF4-8892EA6B52A8.jpeg</strong> (259.78 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203137qgv3cqg3ntbns2j2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4A65255D-1363-46FF-9671-226D7AF8E2A3.jpeg</strong> (355.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+<img src="https://img.saraba1st.com/forum/202211/13/203148m7y8m1d90wtax98z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CF2657DA-2DD2-462B-878B-5AEAC865423A.jpeg</strong> (296.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:31 上传
+
+*****
+
+####  仟音一心  
+##### 6727#       发表于 2022-11-13 20:34
+
+Ultraman MoeP
+
+<img src="https://img.saraba1st.com/forum/202211/13/203402afyykfqyyayyxqvv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>263640E0-E4B4-452F-A17B-70B71DC9F3A9.jpeg</strong> (289.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-13 20:34 上传
+
+
+
+*****
+
+####  yicihanshu  
+##### 6728#       发表于 2022-11-13 22:53
+
+木谷高明还算给面子，虹足足给了6首歌，时长占了19分钟多，已经是比肩ras或者r的时长了，而且效果很好，有solo有团歌，还都挺能带气氛。有群友说武士道就和恋他爹一样，现在想起来虹是自己孩子了。
+嘛，不管怎样看的挺开心的，我宣布木谷高明的🐴复活一天。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  li463900160  
+##### 6729#       发表于 2022-11-14 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58413379&amp;ptid=1959558" target="_blank">砂糖砂糖 发表于 2022-11-13 14:29</a>
+
+楠木灯是婴儿肥，水野朔那可是大妈脸，我记得谁评价23岁长了33岁的脸，太别扭了 ...</blockquote>
+是的，我当年看伊波杏树的时候，她还在给人舞台剧当配角，当时我看着以为是别的正常舞台剧演员过来的，结果后来才知道那时候她才18岁还是19岁。。。。而且她平时上班都是穿学校JK制服。。。。
+
+*****
+
+####  li463900160  
+##### 6730#       发表于 2022-11-14 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420989&amp;ptid=1959558" target="_blank">yicihanshu 发表于 2022-11-13 22:53</a>
+
+木谷高明还算给面子，虹足足给了6首歌，时长占了19分钟多，已经是比肩ras或者r的时长了，而且效果很好，有s ...</blockquote>
+能出声的大马路才是完整的大马路，今天这场真的爽疯了
+
+
+
+*****
+
+####  NZ-333  
+##### 6731#       发表于 2022-11-14 10:23
+
+带上banana也算azuna<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  仟音一心  
+##### 6732#       发表于 2022-11-14 11:07
+
+<img src="https://img.saraba1st.com/forum/202211/14/110740zvyl99hgbol5y4h9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2319EF29-5D51-4571-B4E7-DF40ED2397BE.jpeg</strong> (621.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-14 11:07 上传
+
+
+
+*****
+
+####  makece  
+##### 6733#       发表于 2022-11-14 18:02
+
+从隔壁少歌中等部里薅一个来做雪菜算了
+
+能唱能跳年龄小还没有一大堆企划在身<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ardito  
+##### 6734#       发表于 2022-11-14 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434183&amp;ptid=1959558" target="_blank">makece 发表于 2022-11-14 18:02</a>
+
+从隔壁少歌中等部里薅一个来做雪菜算了
+
+能唱能跳年龄小还没有一大堆企划在身
+
+ ...</blockquote>
+见到巴珠绪像亲人一样是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makece  
+##### 6735#       发表于 2022-11-14 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434453&amp;ptid=1959558" target="_blank">ardito 发表于 2022-11-14 18:21</a>
+
+见到巴珠绪像亲人一样是吧</blockquote>
+巴珠绪上不了4thLIVE还是挺可惜的
+
+
+
+*****
+
+####  梶原ひかり  
+##### 6736#       发表于 2022-11-14 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">每次想到有人要替代灯露 就感觉心疼
+好好陪伴快六年的角色 说没就没了
+之后还会被遗忘
+
+
+
+*****
+
+####  dozen  
+##### 6737#       发表于 2022-11-14 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58436102&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2022-11-14 20:04</a>
+每次想到有人要替代灯露 就感觉心疼
+好好陪伴快六年的角色 说没就没了
+之后还会被遗忘 ...</blockquote>
+“说没就没了”
+可现在普遍都觉得不是灯露被夺走了雪菜、而是她自己放弃的
+
+“说放弃就放弃了”才是很多人现在的意难平
+
+
+
+*****
+
+####  li463900160  
+##### 6738#       发表于 2022-11-15 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">然后我这边想出阿灯圣诞SOLO的票没人要
+
+
+
+*****
+
+####  Piano-Forest  
+##### 6739#       发表于 2022-11-15 11:35
+
+『ラブライブ！虹ヶ咲学園スクールアイドル同好会』TVアニメ2期Blu-ray第7巻のジャケットイラストを初公開
+
+第7巻にはユニットライブQU4RTZ公演DAY.2のチケット最速先行抽選申込券など豪華特典満載
+
+詳細はこちら：
+[https://lovelive-anime.jp/nijigasaki/bd2.php#bd07](https://lovelive-anime.jp/nijigasaki/bd2.php#bd07)
+<img src="https://p.sda1.dev/8/88cb0f313dd82369fe2d7d9916031234/20221115_113214.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/babb8144934498b143e78ee2cc991862/20221115_113217.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 6740#       发表于 2022-11-15 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58438704&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-14 23:06</a>
+“说没就没了”
+可现在普遍都觉得不是灯露被夺走了雪菜、而是她自己放弃的</blockquote>
+如果非外部环境 也不会有人放弃吧..
+只是外部不给这个条件..压力过大 迫不得已放弃的
+真正结束也是刚刚好3.31
+
+
+
+*****
+
+####  dozen  
+##### 6741#       发表于 2022-11-15 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58444355&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2022-11-15 11:39</a>
+如果非外部环境 也不会有人放弃吧..
+只是外部不给这个条件..压力过大 迫不得已放弃的
+真正结束也是刚刚好 ...</blockquote>
+这件事情全取决于灯露和sma的态度，
+运营这边肯定不是主动想破戒换人的，
+粉丝这边要是早知道这关乎降板与否，为了挽留她肯定也不会继续给她那么大的压力，“人总是喜欢调和折中的”
+
+但坚决不续签就什么转机都不会有了
+
+
+
+*****
+
+####  梶原ひかり  
+##### 6742#       发表于 2022-11-15 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58444811&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 12:17</a>
+这件事情全取决于灯露和sma的态度，
+运营这边肯定不是主动想破戒换人的，
+粉丝这边要是早知道这关乎降板 ...</blockquote>
+是否接着这个取决于运营给什么方案..
+如果还像原来一样 给人压力太大了..
+你如果真能做到爱马仕一样 缺席与否不是那么多议论未必会这样..或者干脆live代役 
+就一个坐在台上 论谁都不好受...
+
+
+
+*****
+
+####  星踪幻影  
+##### 6743#       发表于 2022-11-15 16:53
+
+ 本帖最后由 星踪幻影 于 2022-11-15 16:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58444811&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 12:17</a>
+
+这件事情全取决于灯露和sma的态度，
+
+运营这边肯定不是主动想破戒换人的，
+
+粉丝这边要是早知道这关乎降板 ...</blockquote>
+所谓折中办法是“雪菜改人设”
+
+你不要说之前没看到一些逼逼
+
+别忘了虹已经是动画后的三次元live时期
+
+
+
+*****
+
+####  dozen  
+##### 6744#       发表于 2022-11-15 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449075&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 16:53</a>
+所谓折中办法是“雪菜改人&amp;#x ...</blockquote>
+关于运营方的解决方案，我和楼上都倾向于live找个代役
+
+我说的“调和折中”是指，之前那些逼逼雪菜live缺席的，如果真让他们在降板和维持现状中做选择，那么其中不少人就会转而选择折中方案甚至接受维持现状了
+而且你看之前那些逼逼现在敢吱声么，如果灯露能留下，那些逼逼以后再出现也只会被按下去
+
+可惜的是粉丝向来没得选择
+
+*****
+
+####  星踪幻影  
+##### 6745#       发表于 2022-11-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449287&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 17:06</a>
+
+关于运营方的解决方案，我和楼上都倾向于live找个代役
+
+我说的“调和折中”是指，之前那些逼逼雪菜live缺 ...</blockquote>
+老实说代役也是微妙不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6746#       发表于 2022-11-15 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449330&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 17:08</a>
+老实说代役也是微妙不讨好[f ...</blockquote>
+比降板直接搞分流提纯温和多了，对虹和对灯都是
+
+
+
+*****
+
+####  DarthAka  
+##### 6747#       发表于 2022-11-15 17:17
+
+运营的方案，已知在九月就定了明年三月分手的前提下，虹4格放一月，azn插队到三月……正常处理不应该是4格和azn都放四月给新人刷存在，然后3月底放个5th加场毕业/新人上台……现在这样新人上来干啥？
+
+
+
+*****
+
+####  crocccc  
+##### 6748#       发表于 2022-11-15 17:51
+
+<img src="https://img.saraba1st.com/forum/202211/15/175123brxux1g7x1gab42x.jpg" referrerpolicy="no-referrer">
+
+<strong>05TCQ(KR2BC@2}GNLY99L0A.jpg</strong> (507.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-15 17:51 上传
+
+兔的目标清除计划
+
+
+
+*****
+
+####  稀勢のささ  
+##### 6749#       发表于 2022-11-15 19:04
+
+粉丝不一定买账新人，不如赶紧榨干剩余价值包赚不赔（
+
+*****
+
+####  星踪幻影  
+##### 6750#       发表于 2022-11-15 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449438&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 17:13</a>
+
+比降板直接搞分流提纯温和多了，对虹和对灯都是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">对代打的人来说很恶心的
+
+
+
+*****
+
+####  dozen  
+##### 6751#       发表于 2022-11-15 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451221&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 19:08</a>
+对代打的人来说很恶心的</blockquote>
+代打的人和其他人签的又不是同一份合同，干多少活儿领多少工资，一个合格打工人有什么好感到恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+退一步说，能比降板恶心到的人少就是胜利啊
+
+
+
+*****
+
+####  星踪幻影  
+##### 6752#       发表于 2022-11-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451382&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 19:17</a>
+
+代打的人和其他人签的又不是同一份合同，干多少活儿领多少工资，一个合格打工人有什么好感到恶心的[f:009 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们认真吗……
+
+*****
+
+####  cybernetics31  
+##### 6753#       发表于 2022-11-15 19:58
+
+然而运营和上头的大人根本不会这么想，接受现实吧
+
+
+
+*****
+
+####  dozen  
+##### 6754#       发表于 2022-11-15 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451974&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 19:54</a>
+你们认真吗……</blockquote>
+武打替身、特技替身这种性命攸关的活儿都客观存在，找个舞替是什么伤天害理的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+想了下你可能是觉得找一个偶像声优来做这种活儿是耽误人家前程受委屈，
+可这活儿给伴舞、舞台剧演员这样的舞台经验者可不是什么坏差事，相比平时工作难度不陡增的同时曝光度还能明显提高
+
+另外这话题再聊下去也只是白日做梦罢了，就此打住吧
+
+
+
+*****
+
+####  星踪幻影  
+##### 6755#       发表于 2022-11-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452146&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:07</a>
+
+武打替身、特技替身这种性命攸关的活儿都客观存在，找个舞替是什么伤天害理的事情吗
+
+想了下你可 ...</blockquote>
+你知道你说的事意义代表什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6756#       发表于 2022-11-15 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452251&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:14</a>
+你知道你说的事意义代表什&amp;# ...</blockquote>
+你不妨讲得明白点，何必去隔壁楼倒垃圾呢
+
+
+
+*****
+
+####  星踪幻影  
+##### 6757#       发表于 2022-11-15 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452268&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:15</a>
+
+你不妨讲得明白点，何必去隔壁楼倒垃圾呢</blockquote>
+你只单推LL虹？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+灯还有不少企划呢，是雪菜的舞役还是灯的舞替？这要搞清楚
+
+之所以到隔壁吐槽下，你们说的方案比星的操作目测严重多了
+
+*****
+
+####  dozen  
+##### 6758#       发表于 2022-11-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452386&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:24</a>
+你只单推LL虹？
+
+灯还有不少 ...</blockquote>
+且不说我是单推又如何，严重在哪儿倒是说出个所以然啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6759#       发表于 2022-11-15 20:30
+
+他们不就说找个歌替，楼上想哪去了，远有马库罗斯，近的红烧天堂里灯那个角色不就是歌手替唱
+
+
+
+*****
+
+####  星踪幻影  
+##### 6760#       发表于 2022-11-15 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452456&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:28</a>
+
+且不说我是单推又如何，严重在哪儿倒是说出个所以然啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">且不说以后灯要不要上场？，舞替有没有“脸？”
+
+要不要全舞替live啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6761#       发表于 2022-11-15 20:33
+
+ 本帖最后由 星踪幻影 于 2022-11-15 20:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452490&amp;ptid=1959558" target="_blank">DarthAka 发表于 2022-11-15 20:30</a>
+
+他们不就说找个歌替，楼上想哪去了，远有马库罗斯，近的红烧天堂里灯那个角色不就是歌手替唱 ...</blockquote>
+是灯变成“歌替”了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">而且其实也不会再看到楠木蹬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6762#       发表于 2022-11-15 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452535&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:32</a>
+
+且不说以后灯要不要上场&amp;#x ...</blockquote>
+灯是坐不了后台唱歌了吗？看她的live安排并不像呢
+
+舞替当然可以露脸，有什么避讳的？当然运营要求面具的话也ok啊
+
+至于你全舞替live的发想也是搞笑，把特殊情况扩大化有什么意思，按你这想法以后live跳不动了是不是都该降板换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DarthAka  
+##### 6763#       发表于 2022-11-15 20:40
+
+<blockquote>星踪幻影 发表于 2022-11-15 20:33
+是灯变成“歌替”了而且&amp;#x5 ...</blockquote>
+当然歌得重录，舞是舞台的舞，人家在意的不是楠木蹬，在意的是虹团的人际关系，说难听叫营业，说好听叫团魂不能崩了
+
+*****
+
+####  星踪幻影  
+##### 6764#       发表于 2022-11-15 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452628&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:37</a>
+
+灯是坐不了后台唱歌了吗？看她的live安排并不像呢
+
+舞替当然可以露脸，有什么避讳的？当然运营要求面具的 ...</blockquote>
+当然运营要求面具的话也ok啊
+
+还真轻描淡写啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6765#       发表于 2022-11-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452672&amp;ptid=1959558" target="_blank">DarthAka 发表于 2022-11-15 20:40</a>
+
+当然歌得重录，舞是舞台的舞，人家在意的不是楠木蹬，在意的是虹团的人际关系，说难听叫营业，说好听叫团 ...</blockquote>
+老实说那样现地会非常生草的场面吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6766#       发表于 2022-11-15 20:48
+
+ 本帖最后由 dozen 于 2022-11-15 20:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452714&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:43</a>
+
+当然运营要求面具的话也ok啊 ...</blockquote>
+业界有claris、ado等例子在，有什么好心理负担的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  li463900160  
+##### 6767#       发表于 2022-11-16 13:34
+
+楠木灯自己本人肯定是不想退的，无论从这么多年感情还是挣钱角度来说拉拉都是铁饭碗
+
+虹运营本身来说自从20年报道后到今年也开了不少live活动了，凑合凑合都能过。
+
+最后毕业时间是3.31，是日本常规合同到期时间
+
+谁想让灯退大家心知肚明
+
+
+
+*****
+
+####  NZ-333  
+##### 6768#       发表于 2022-11-16 16:16
+
+<img src="https://img.saraba1st.com/forum/202211/16/161459vwwciwdwjd9df4st.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-16 16:14 上传
+
+<img src="https://img.saraba1st.com/forum/202211/16/161508oxw877k8uoo2nj22.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-16 16:15 上传
+
