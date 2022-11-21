@@ -1462,3 +1462,48 @@ CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那C
 
 养了大半年了，再放一阵子算了，上次好像看到小玉藻退役<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  isummon  
+##### 128#         楼主| 发表于 2022-11-17 17:35
+
+连载一百回纪念图
+
+<img src="https://p.sda1.dev/8/861c5778986bf1edfb038a5f3906b7a4/CMP_20221117173411082.jpg" referrerpolicy="no-referrer">
+
+久住还特意说明了，赛马娘第三季动画并不是芦毛灰姑娘哈
+
+*****
+
+####  klzxs  
+##### 129#       发表于 2022-11-17 19:46
+
+如果按漫画来演的话
+
+一季动画演完玉藻十字战就结束了
+
+小栗帽的故事对tv来说是长了点
+
+*****
+
+####  depthlee  
+##### 130#       发表于 2022-11-17 19:57
+
+小栗感觉走ova长期连载更适合，动画应该还是先把已经出了的角色的补全罢
+
+*****
+
+####  depthlee  
+##### 131#       发表于 2022-11-17 19:57
+
+小栗感觉走ova长期连载更适合，动画应该还是先把已经出了的角色的补全罢
+
+
+
+*****
+
+####  xvi黑翼公  
+##### 132#       发表于 2022-11-17 21:32
+
+md看到鸡腿就想到圣夜，想起圣夜就是帽门ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
