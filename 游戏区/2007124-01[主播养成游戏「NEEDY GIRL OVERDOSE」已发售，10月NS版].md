@@ -9140,3 +9140,12 @@ b站热搜第二 这是买了吧<img src="https://static.saraba1st.com/image/smi
 借楼问问这游戏和传统galgame的区别大么，可玩性如何</blockquote>
 不太galgame，单周目流程不长，偏养成。可玩性的话...只能说没什么可玩性，数值也不复杂，主要就是玩个剧情，你对这题材感兴趣可以入
 
+*****
+
+####  再买自检星剁手  
+##### 774#       发表于 2022-11-20 19:39
+
+压力上到90就会触发割腕，可是去医院或者逛街降压力，很容易第二天就宣布毕业<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+有办法不触发割腕也能混到30天吗？
+
