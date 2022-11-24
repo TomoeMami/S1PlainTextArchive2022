@@ -3948,3 +3948,52 @@ DGG预定2年左右
 
 记忆中是不是除了无印中途没用过跃迁进化？这次换新手环后完全体应该没有时限了吧之前大概就是这个的伏笔
 
+*****
+
+####  天光逸  
+##### 383#       发表于 2022-11-20 23:48
+
+保护环境人人有责
+
+琉璃受害再添一笔
+
+
+
+*****
+
+####  赤道氮  
+##### 384#       发表于 2022-11-22 00:09
+
+爱奇艺寄了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  赤道氮  
+##### 385#       发表于 2022-11-22 00:09
+
+爱奇艺寄了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  飞升之后  
+##### 386#       发表于 2022-11-22 01:33
+
+所以ip越来越糊比
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  飞升之后  
+##### 387#       发表于 2022-11-22 01:33
+
+所以ip越来越糊比
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
