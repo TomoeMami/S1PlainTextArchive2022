@@ -8306,3 +8306,10 @@ kana这个角色真是演活了<img src="https://static.saraba1st.com/image/smil
 这游戏XP是流汗吗</blockquote>
 是的，动画也是
 
+*****
+
+####  两个路人  
+##### 751#       发表于 2022-11-21 22:18
+
+没想到还能出英文版，是不是可以桃一个繁中？https://ip.boltrend.com/en
+
