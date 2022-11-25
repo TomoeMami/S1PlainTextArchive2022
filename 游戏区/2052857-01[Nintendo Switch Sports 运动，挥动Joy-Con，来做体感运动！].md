@@ -5317,3 +5317,19 @@ https://www.nintendo.co.jp/support/information/2022/1017.html
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  Leaflower  
+##### 417#         楼主| 发表于 2022-11-22 09:48
+
+《Nintendo Switch 运动》将于11月29日免费更新，追加全新运动项目「高尔夫」。包含《Wii Sports》的球场在内，该项目共收录21种球场！  同时任天堂还将于12月16日推出「Nintendo Switch 运动 同捆套装」，售价37980日元。内含Switch主机本体、《Nintendo Switch 运动》数字版游戏、腿部绑带和12个月的NSO会员资格。#Switch#
+
+
+
+*****
+
+####  牛奶笛  
+##### 418#       发表于 2022-11-22 10:26
+
+这次的双倍活动到哪一天截止？
+
