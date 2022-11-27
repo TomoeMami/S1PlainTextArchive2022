@@ -1668,3 +1668,20 @@ Champion和Vans、PUMA和FILA、PalaceBorn x Raised以及Versace等其他的
 
 个人感觉大概不如21
 
+*****
+
+####  proselyte  
+##### 83#         楼主| 发表于 2022-11-24 16:21
+
+ 本帖最后由 proselyte 于 2022-11-24 16:30 编辑 
+
+各平台预载时间
+
+<img src="https://img.saraba1st.com/forum/202211/24/162134tr0qjq1zdx7180rq.jpg" referrerpolicy="no-referrer">
+
+<strong>cf68d9bf493f41f490051091751e313028113214.jpg</strong> (351.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 16:21 上传
+
