@@ -4253,3 +4253,10 @@ IGN7分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" ref
 
 讲真，既然要表现黑深残 成人向，这片为什么不能匀出点时间 来展开讲一讲用普通人类做成HEAVEN的黑深残故事呢。进一步说明首相作为人类社会（日本）的顶端，对于同类中的弱者也存在歧视和压迫。
 
+*****
+
+####  猫不萌  
+##### 382#       发表于 2022-11-27 01:45
+
+越想越觉得black sun没那么差，为什么不是现实题材套假面骑士呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
