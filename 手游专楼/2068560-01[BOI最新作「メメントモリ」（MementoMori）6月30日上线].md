@@ -1054,3 +1054,13 @@ sr就靠日常周长10张歪了</blockquote>
 
 好像拆出来活动商店图标了，估计离实装应该遥遥无期
 
+*****
+
+####  会魔法的怪叔叔  
+##### 111#       发表于 2022-11-29 18:32
+
+这次圣诞活动限定到达5-24关，会有关卡活动吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+实在不行整章剧情也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
