@@ -3997,3 +3997,99 @@ DGG预定2年左右
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  RainbowSealife  
+##### 388#       发表于 2022-11-27 17:36
+
+<img src="https://img.saraba1st.com/forum/202211/27/172740obmp85n5vd6de7m7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:27 上传
+
+<img src="https://img.saraba1st.com/forum/202211/27/172815zwh8a99m989uh0tu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (327.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:28 上传
+
+虚胖兔哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/27/173228kdijhhfjrlrxzxjo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (205.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:32 上传
+
+kanojyo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/27/172931i28g0zppo7z827o6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:29 上传
+
+谁家醋坛翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/27/173121ssyh10u7bzr9bi7a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:31 上传
+
+你为什么要奖励他啊？！
+
+<img src="https://img.saraba1st.com/forum/202211/27/173539xjjvbjprjimj6kk3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 17:35 上传
+
+nmd真鬼啊？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  天光逸  
+##### 389#       发表于 2022-11-27 22:57
+
+这集的赌狗心态很应景
+
+
+
+*****
+
+####  plusfive  
+##### 390#       发表于 2022-11-30 13:34
+
+每集迫害一次同伴，不过琉璃应该比前辈次数多点，迫害得狠多了，系列最惨女主无跑了…
+这新手环就是加新技能的，就前辈没有新必杀…
+
+
+
+*****
+
+####  汇聚群光  
+##### 391#       发表于 2022-11-30 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58690304&amp;ptid=2018235" target="_blank">plusfive 发表于 2022-11-30 13:34</a>
+
+每集迫害一次同伴，不过琉璃应该比前辈次数多点，迫害得狠多了，系列最惨女主无跑了…
+
+这新手环就是加新技 ...</blockquote>
+忒提斯兽的所有必杀技在换新手环之前就已经全解锁完了
+
