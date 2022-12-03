@@ -8434,3 +8434,10 @@ BOSS战是葵斯的α·阿基鲁是没想到的，你一个宇宙战专用机、
 
 还有就是这游戏好几张夜战图都是伸手不见五指，比如前期W正史和G正史的师徒对决
 
+*****
+
+####  920619lqy  
+##### 799#       发表于 2022-12-1 00:43
+
+这游戏今天更了个1.31，修了些bug....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
