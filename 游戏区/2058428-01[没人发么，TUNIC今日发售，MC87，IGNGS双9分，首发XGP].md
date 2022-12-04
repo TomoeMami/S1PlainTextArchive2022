@@ -884,3 +884,10 @@ boss全身模型都有物理判定而不是2d游戏标准的脚下圆圈，所�
 
 前面玩着还挺有2d塞尔达感觉的，后面就突然一转变成硬核解密游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  allenz3  
+##### 92#       发表于 2022-12-1 10:43
+
+这游戏的boss战真恶心，我想开锁血玩了
+
