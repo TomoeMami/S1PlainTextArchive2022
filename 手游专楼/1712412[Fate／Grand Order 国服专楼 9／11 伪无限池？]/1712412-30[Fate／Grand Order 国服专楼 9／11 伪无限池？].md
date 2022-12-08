@@ -1239,3 +1239,1772 @@ ios手势自动抽友情池一个没注意它给我滑旁边把卡池抽了<img 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">歪了七宝大公的表示，开了20np后大公也不是不能作为金时的替代品。。。
 
+*****
+
+####  shimotsuki14  
+##### 43634#       发表于 2022-10-20 19:32
+
+下午才发现又维护了
+
+
+
+*****
+
+####  DET  
+##### 43635#       发表于 2022-10-20 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922414&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2022-10-15 17:19</a>
+
+我想知道明年的龙娘活动会变成怎样</blockquote>
+明年是水浒传主题...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 43636#       发表于 2022-10-20 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58011144&amp;ptid=1712412" target="_blank">DET 发表于 2022-10-20 20:04</a>
+明年是水浒传主题...</blockquote>
+所以我才这么说的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DET  
+##### 43637#       发表于 2022-10-20 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58011217&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2022-10-20 20:08</a>
+
+所以我才这么说的嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都玩BGO了
+
+
+
+*****
+
+####  marxel  
+##### 43638#       发表于 2022-10-22 15:13
+
+好歹更新了一下，顶顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  bluna  
+##### 43639#       发表于 2022-10-22 15:30
+
+水浒改成水许啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  待宵  
+##### 43640#       发表于 2022-10-22 16:37
+
+怎么没人说抽卡的事
+
+女王还是很香的吧
+
+
+
+*****
+
+####  Kon-El  
+##### 43641#       发表于 2022-10-22 21:17
+
+这次好在副本不阴间了，增加的敌人都是一排出现，对蓝卡队比较友好<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43642#       发表于 2022-10-23 23:29
+
+活动期间居然爆体了，看来实在是太咸鱼了......
+
+
+
+*****
+
+####  kazemitoya  
+##### 43643#       发表于 2022-10-24 07:55
+
+曾经无知，卖了迪昂和小贝。昨天花150石头把他们接回来了，算是了了心愿。中途拿皇还加1
+
+
+
+*****
+
+####  collincollin  
+##### 43644#       发表于 2022-10-24 11:19
+
+6怪同屏真是个好文明
+
+
+
+*****
+
+####  tttabc1  
+##### 43645#       发表于 2022-10-24 13:06
+
+1001也能省心三连了，这回活动真舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kazemitoya  
+##### 43646#       发表于 2022-10-24 13:15
+
+C闪的回收真是感天动地！6怪都很难拯救。
+
+
+
+*****
+
+####  J-002  
+##### 43647#       发表于 2022-10-24 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075757&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-10-24 13:15</a>
+
+C闪的回收真是感天动地！6怪都很难拯救。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">生前过劳死过，上座后宁可挨骂都不加班
+
+
+
+*****
+
+####  Blackson  
+##### 43648#       发表于 2022-10-24 16:44
+
+这次活动因为加成李庄太麻烦，干脆早点刷出换满破。结果没有三点数各到20W就满破了。现在只能刷QP等90+出来再继续活动
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43649#       发表于 2022-10-25 19:56
+
+突然有种预感日服会整个大活背刺一下准备抽高宝金时的......
+
+当然也可能只是我的一厢情愿
+
+
+
+*****
+
+####  Kon-El  
+##### 43650#       发表于 2022-10-25 22:00
+
+点数和商店素材都刷完了，女神与野兽副本凶骨掉落还可以，准备多刷刷<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  霄度天  
+##### 43651#       发表于 2022-10-26 16:00
+
+C闪打90的杀阶本还是可以的吧
+
+
+
+*****
+
+####  待宵  
+##### 43652#       发表于 2022-10-26 20:54
+
+这次什么情况，怎么就没刷到毒苹果礼装满破的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Ousia  
+##### 43653#       发表于 2022-10-26 21:16
+
+是不是这次没什么必要挂，到最后发现借的也还是午茶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自己出一张未满破的点数刷完该搬的也都搬完了
+
+
+
+*****
+
+####  佐塚間桐  
+##### 43654#       发表于 2022-10-27 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是不用角色加成了
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43655#       发表于 2022-10-27 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111735&amp;ptid=1712412" target="_blank">霄度天 发表于 2022-10-26 16:00</a>
+
+C闪打90的杀阶本还是可以的吧</blockquote>
+满破五十np倍卡一宝就够，双c呆加换人五十充任意拐
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43656#       发表于 2022-10-27 21:17
+
+原来每个职阶找个50单体自充打手都那么困难......
+
+
+
+*****
+
+####  qixinno2  
+##### 43657#       发表于 2022-10-27 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟也就这两年才几乎五星人手一个自充 
+
+
+
+*****
+
+####  DET  
+##### 43658#       发表于 2022-10-28 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">一大早起来邮箱就被塞爆强化素材是什么情况
+
+
+
+*****
+
+####  體育老師  
+##### 43659#       发表于 2022-10-28 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再也不用去打狗粮，也不用活动换狗粮了
+
+
+
+*****
+
+####  johnkamsar  
+##### 43660#       发表于 2022-10-28 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140993&amp;ptid=1712412" target="_blank">體育老師 发表于 2022-10-28 09:53</a>
+再也不用去打狗粮，也不用活动换狗粮了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定？双修表示这点狗粮几下就吃完了
+
+
+
+*****
+
+####  體育老師  
+##### 43661#       发表于 2022-10-28 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141232&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2022-10-28 10:11</a>
+
+你确定？双修表示这点狗粮几下就吃完了</blockquote>
+确定，要升120的之前已经升完了，也没力气升第二个了...
+
+
+
+*****
+
+####  艾尔特翔  
+##### 43662#       发表于 2022-10-28 16:11
+
+120都不想，我还有好多L1的4星和3星还不够喂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  tttabc1  
+##### 43663#       发表于 2022-10-28 16:50
+
+不升120还行，够用了。
+芙芙缺得不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43664#       发表于 2022-10-28 19:36
+
+哪有资源升120，梦里哦
+
+拉到100都是是斟酌后决定的，毕竟大部分都是一宝，也就暴击手一宝拉100还算不亏
+
+倒是最近饼干不太够了
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43665#       发表于 2022-10-28 22:54
+
+送的这一千狗粮我全喂大老师了
+
+可算升到108了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DET  
+##### 43666#       发表于 2022-10-29 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好消息是不用打狗粮了，坏消息是没QB强化于是只好让狗粮塞满我的仓库
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43667#       发表于 2022-10-29 15:49
+
+到今天才把从者币搬完，这次活动要搬空商店有点难度啊
+
+
+
+*****
+
+####  不乖  
+##### 43668#       发表于 2022-10-30 09:56
+
+今天早上上完小号打开大号，发现账号被重置了？什么都没了，直接从1级新手引导开始，是什么情况啊。。。
+
+
+
+*****
+
+####  Blackson  
+##### 43669#       发表于 2022-10-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179549&amp;ptid=1712412" target="_blank">不乖 发表于 2022-10-30 09:56</a>
+
+今天早上上完小号打开大号，发现账号被重置了？什么都没了，直接从1级新手引导开始，是什么情况啊。。。 ...</blockquote>
+是不是选择错服务器了？
+
+*****
+
+####  不乖  
+##### 43670#       发表于 2022-10-30 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179842&amp;ptid=1712412" target="_blank">Blackson 发表于 2022-10-30 10:19</a>
+是不是选择错服务器了？</blockquote>
+一直用模拟器玩的，什么设置也没变过，把模拟器卸了重新装又好了，不知道什么原因，难道误点区服选择了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43671#       发表于 2022-10-30 17:04
+
+居然又爆体了，活动期间爆体两次，唉......
+
+
+
+*****
+
+####  tttabc1  
+##### 43672#       发表于 2022-10-31 08:36
+
+活动刷完了，6怪和100%礼装好文明。
+继续牛津<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43673#       发表于 2022-10-31 09:42
+
+还有两天，硬币还没搬完，要磕苹果开始死亡冲刺力（悲）
+
+
+
+*****
+
+####  佐塚間桐  
+##### 43674#       发表于 2022-10-31 17:37
+
+我有机龙娘，那商店里面换出来的还会给金方块吗？
+
+
+
+*****
+
+####  qixinno2  
+##### 43675#       发表于 2022-10-31 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209219&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2022-10-31 17:37</a>
+
+我有机龙娘，那商店里面换出来的还会给金方块吗？</blockquote>
+给
+
+
+
+*****
+
+####  佐塚間桐  
+##### 43676#       发表于 2022-10-31 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209444&amp;ptid=1712412" target="_blank">qixinno2 发表于 2022-10-31 17:51</a>
+
+给 不过要先在箱子里领出来才会给</blockquote>
+谢谢告知
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43677#       发表于 2022-10-31 22:41
+
+有一个点数先满了，但是不想打阴间本.....
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43678#       发表于 2022-11-1 00:31
+
+突发奇想想要泳装小莫，然后扔了十张呼符进去，女帝蹦出来了.....
+
+
+
+*****
+
+####  qixinno2  
+##### 43679#       发表于 2022-11-1 01:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">呼符全是绿方块 GG
+
+
+
+*****
+
+####  體育老師  
+##### 43680#       发表于 2022-11-1 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金圈杀阶！
+
+周照<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43681#       发表于 2022-11-2 18:52
+
+关于活动要结束了还有摸鱼御主差二十万点数这件事<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+没错，就是我
+
+*****
+
+####  日蚀之阳  
+##### 43682#       发表于 2022-11-2 18:52
+
+关于活动要结束了还有摸鱼御主差二十万点数这件事<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+没错，就是我
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43683#       发表于 2022-11-2 19:54
+
+点数是够了，但是狗粮好像搬不完....礼装是放弃了，反正都有了，就补了一张女仆猫的满破
+
+
+
+*****
+
+####  佐塚間桐  
+##### 43684#       发表于 2022-11-3 20:14
+
+这个龟龟不是一与啊
+
+之前还以为一与是弟弟，搞半天是弟子
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43685#       发表于 2022-11-3 20:55
+
+这活动总算能给好友提供点礼装了
+
+
+
+*****
+
+####  DET  
+##### 43686#       发表于 2022-11-3 22:41
+
+编辑
+
+
+
+*****
+
+####  Kon-El  
+##### 43687#       发表于 2022-11-4 08:10
+
+半夜醒了想不开点了一发十一连，卑弥呼到手，不算福袋今年第二个五星<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  gearbox  
+##### 43688#       发表于 2022-11-4 08:34
+
+20护肤，四个十连，我也有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  yznmd  
+##### 43689#       发表于 2022-11-4 13:46
+
+这次活动没有啥打的必要了，正好咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布伦史塔德  
+##### 43690#       发表于 2022-11-4 16:32
+
+该搓胜杯了
+
+前年搞了一个亿友情点
+
+暂时没有想升120的，也许摩根
+
+
+
+*****
+
+####  marxel  
+##### 43691#       发表于 2022-11-4 16:43
+
+卑主要是我有梅有呆，不如借别人100级高宝的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43692#       发表于 2022-11-4 20:52
+
+卑狐呆请战<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+五十群冲+减cd
+
+
+
+*****
+
+####  待宵  
+##### 43693#       发表于 2022-11-4 22:06
+
+友情点不多直接抽完了
+
+
+
+*****
+
+####  SAGA0Arcueid  
+##### 43694#       发表于 2022-11-4 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261044&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2022-11-3 20:14</a>
+
+这个龟龟不是一与啊
+
+之前还以为一与是弟弟，搞半天是弟子</blockquote>
+这个活动最后开始挖坑，最后落地和师傅抢男人
+
+然而由于师傅人气实在太低导致她其实是个ML的事情基本上没多少玩家知道，离谱
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43695#       发表于 2022-11-4 22:54
+
+同学说小安7宝了，然而我至今只有4宝
+
+
+
+*****
+
+####  azccc52  
+##### 43696#       发表于 2022-11-4 23:48
+
+我小安13宝了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  yznmd  
+##### 43697#       发表于 2022-11-5 00:36
+
+小安lily都溢出了，哈贝喵还卡在3宝<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43698#       发表于 2022-11-5 12:26
+
+第一天怎么卡粘土卡那么厉害....
+
+
+
+*****
+
+####  星尘的记忆  
+##### 43699#       发表于 2022-11-5 17:53
+
+这次要把友情抽光？有什么说法吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  待宵  
+##### 43700#       发表于 2022-11-5 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287493&amp;ptid=1712412" target="_blank">星尘的记忆 发表于 2022-11-5 17:53</a>
+
+这次要把友情抽光？有什么说法吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+友情池信胜UP，从者币以后可以造圣杯
+
+另一方面就是礼装经验值
+
+现在抽友情池无疑是性价比最高的时候
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43701#       发表于 2022-11-6 14:40
+
+吓得我又抽了20W友情点，然而还是没有最后一宝小安
+
+
+
+*****
+
+####  sandro  
+##### 43702#       发表于 2022-11-6 16:21
+
+抽友情太痛苦了。。。
+
+
+
+*****
+
+####  體育老師  
+##### 43703#       发表于 2022-11-7 08:32
+
+什么？原来只有我小安1宝么？还是上次抽哈贝喵的时候NEW的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DET  
+##### 43704#       发表于 2022-11-7 17:55
+
+柱子好适合刷QB啊，刷了几下感受到了富有
+
+
+
+*****
+
+####  电波系腑海林  
+##### 43705#       发表于 2022-11-7 20:31
+
+柱子没人打啊，叔叔又要召唤阴兵了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  DET  
+##### 43706#       发表于 2022-11-7 20:44
+
+虽然柱子的确没啥人打，但是枪阶的差那么多肯定是因为位置的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kazemitoya  
+##### 43707#       发表于 2022-11-7 21:42
+
+第二次抽哈吉咩酱，又没抽到，我抽完了所有的石头和护符，土方都来了，哈吉咩却没有……唉。
+
+
+
+*****
+
+####  DET  
+##### 43708#       发表于 2022-11-7 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325620&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-7 21:42</a>
+
+第二次抽哈吉咩酱，又没抽到，我抽完了所有的石头和护符，土方都来了，哈吉咩却没有……唉。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事，白情和明年唠唠叨叨在卡池里的，不要抽上头就行
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43709#       发表于 2022-11-7 22:56
+
+巧了，我正好打了枪阶，因为对爆破手不太自信，所以凭感觉上了最能爆破的4宝90级哈吉咩酱
+
+
+
+*****
+
+####  shimotsuki14  
+##### 43710#       发表于 2022-11-8 18:54
+
+草，月神、元素转换、卡姆兰之战的卡面又要恢复了
+
+
+
+*****
+
+####  Ousia  
+##### 43711#       发表于 2022-11-8 20:52
+
+我也是想捞hajime，结果卑弥呼和冲田小姐都补宝了，赶紧停手<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+上次捞美游上头了4单才出，结果后面每日又出了俩……现在在妄想这次每日是不是也能给我捞出来（
+
+
+
+*****
+
+####  待宵  
+##### 43712#       发表于 2022-11-8 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我哈吉咩之前就5宝了，卑弥呼仍然1宝
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43713#       发表于 2022-11-8 21:10
+
+4宝和5宝也差不了太多吧.....应该是我单体爆破能力最强的卡了，比起那些一宝五星来说
+
+*****
+
+####  苍蓝之枪  
+##### 43714#       发表于 2022-11-8 21:10
+
+4宝和5宝也差不了太多吧.....应该是我单体爆破能力最强的卡了，比起那些一宝五星来说
+
+
+
+*****
+
+####  电波系腑海林  
+##### 43715#       发表于 2022-11-8 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情</blockquote>
+我超叔叔的阴兵突然发力，上游戏发现柱子快没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  onezer0618  
+##### 43716#       发表于 2022-11-8 22:12
+
+叔叔打响指了？
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  Ousia  
+##### 43717#       发表于 2022-11-8 23:39
+
+血亏啊，蛤蜊外的都刷完了结果没柱子了，打90+羁绊少一半<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DET  
+##### 43718#       发表于 2022-11-9 09:01
+
+等通古斯刷吧
+
+
+
+*****
+
+####  艾尔特翔  
+##### 43719#       发表于 2022-11-9 15:01
+
+刷够材料就可以了，为了QP刷这轮柱子不值得，QP还是新年那波爽，等明年应该也有
+
+
+
+*****
+
+####  sevenight  
+##### 43720#       发表于 2022-11-9 16:33
+
+我倒是基本上冲着qp刷了几下柱子...
+
+
+
+*****
+
+####  Kon-El  
+##### 43721#       发表于 2022-11-10 22:31
+
+这次高难好简单，百级陈宫满破倍卡4T就过了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  rollingusagi  
+##### 43722#       发表于 2022-11-11 00:19
+
+平面之月居然回来了，看来真是前段日子敏感时期的自我阉割
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  dawning  
+##### 43723#       发表于 2022-11-11 08:00
+
+三令咒复活，打bgo我就是芥雏子呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Blackson  
+##### 43724#       发表于 2022-11-12 11:11
+
+总算是靠这次减半把开强化&amp;幕间的英灵喂起来了，还剩三四百个五星狗粮，点得我都快受不了（太闷）
+  接下来就剩出云阿国和通古斯的太公望比较正中我心
+
+
+
+*****
+
+####  kazemitoya  
+##### 43725#       发表于 2022-11-12 17:59
+
+fgo让我领悟了一个人生真理——友情可以换到很多东西，但同时友情也是最不值钱的东西。
+
+不可描述平台10块钱买了1亿友情，已到账7000万的某个嘛斯塔已经怀疑人生。玩了4年多的160级萌新，这辈子都没刷到过1000万友情，结果……
+
+
+
+*****
+
+####  待宵  
+##### 43726#       发表于 2022-11-12 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401627&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-12 17:59</a>
+
+fgo让我领悟了一个人生真理——友情可以换到很多东西，但同时友情也是最不值钱的东西。
+
+不可描述平台10块 ...</blockquote>
+手还好吗？屏幕还好吗？
+
+
+
+*****
+
+####  廖化  
+##### 43727#       发表于 2022-11-12 20:03
+
+邪马台完了之后就可以抽太公望了？ 
+
+
+
+*****
+
+####  苏沃雷生  
+##### 43728#       发表于 2022-11-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401627&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-12 17:59</a>
+
+fgo让我领悟了一个人生真理——友情可以换到很多东西，但同时友情也是最不值钱的东西。
+
+不可描述平台10块 ...</blockquote>
+要了几个好友位？我得清清。圣杯这种紧俏货可不能少
+
+
+
+*****
+
+####  kazemitoya  
+##### 43729#       发表于 2022-11-12 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403608&amp;ptid=1712412" target="_blank">苏沃雷生 发表于 2022-11-12 20:12</a>
+
+要了几个好友位？我得清清。圣杯这种紧俏货可不能少</blockquote>
+20个。我找两个店买的，所以腾了40个，建议去找天猫店，贵一些，但很快。非天猫的我等了1天，我等不及了，去天猫买1小时就加我了。于是，刷满应该接近2亿（非天猫的据说不会给你刷那么多，但我觉得关服我都用不完）
+
+*****
+
+####  kazemitoya  
+##### 43730#       发表于 2022-11-12 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403259&amp;ptid=1712412" target="_blank">待宵 发表于 2022-11-12 19:49</a>
+
+手还好吗？屏幕还好吗？</blockquote>
+一开始信誓旦旦！——老子要抽4800个信胜硬币，明年一年的份！
+
+抽了3000后……我决定躺平。
+
+
+
+*****
+
+####  khxooo  
+##### 43731#       发表于 2022-11-13 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403465&amp;ptid=1712412" target="_blank">廖化 发表于 2022-11-12 20:03</a>
+邪马台完了之后就可以抽太公望了？</blockquote>
+还早呢，年末差不多元旦才到。
+
+
+
+*****
+
+####  DET  
+##### 43732#       发表于 2022-11-13 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">抽了一千个硬币抽不下去了，感觉需要连点器
+
+
+
+*****
+
+####  johnkamsar  
+##### 43733#       发表于 2022-11-13 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">高难差点3t，可惜最后一下输出力度不够结果血丝……只能后排的bb上来补刀了….
+
+
+
+*****
+
+####  佐塚間桐  
+##### 43734#       发表于 2022-11-13 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  星尘的记忆  
+##### 43735#       发表于 2022-11-14 00:29
+
+870石头 2宝金时
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  夜贼外卖  
+##### 43736#       发表于 2022-11-14 00:32
+
+金卡！
+
+狂阶！
+
+茨木！
+
+
+
+*****
+
+####  UNISONIA  
+##### 43737#       发表于 2022-11-14 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58405205&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-12 21:48</a>
+
+一开始信誓旦旦！——老子要抽4800个信胜硬币，明年一年的份！
+
+抽了3000后……我决定躺平。 ...</blockquote>
+一年的份不是48000个？
+
+
+
+*****
+
+####  麻花疼  
+##### 43738#       发表于 2022-11-14 18:28
+
+金时追3宝用了1000+石，玩你游六年多，千石一宝终于发生了。
+
+100+护符
+
+明明之前2，3单就出货了。。。。。。
+
+明年FAKER出场前不抽卡了，全力备战公主。
+
+
+
+*****
+
+####  苍蓝之枪  
+##### 43739#       发表于 2022-11-14 20:16
+
+不理智了，500石头换了一宝金时，唉
+
+和女帝加一起倒是扯平了.....
+
+
+
+*****
+
+####  shimotsuki14  
+##### 43740#       发表于 2022-11-15 17:30
+
+前两天一个十连来了伊吹，心里稍显宽慰
+
+
+
+*****
+
+####  sandro  
+##### 43741#       发表于 2022-11-17 19:01
+
+我日啊，怎么要通关平安京，我2.5都没打完，感觉难打的一比啊
+
+
+
+*****
+
+####  youharugen  
+##### 43742#       发表于 2022-11-17 20:24
+
+这地图是米德加吗
+
+*****
+
+####  aiqopsha  
+##### 43743#       发表于 2022-11-17 23:39
+
+笑死，好友没有一个抽这个池子的
+
+
+
+*****
+
+####  Kon-El  
+##### 43744#       发表于 2022-11-20 10:42
+
+掉了四张礼装了…
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  shimotsuki14  
+##### 43745#       发表于 2022-11-20 15:11
+
+我到现在甚至还没有打开序章的精力……后面又要冲刺了
+
+
+
+*****
+
+####  dawning  
+##### 43746#       发表于 2022-11-20 15:39
+
+活动我还会好好打的，这是底线，不然直接跑路了，
+
+未来的2000硬币一个圣杯，直接当不存在了，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，
+
+
+
+*****
+
+####  DET  
+##### 43747#       发表于 2022-11-20 17:22
+
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了
+
+
+
+*****
+
+####  khxooo  
+##### 43748#       发表于 2022-11-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58522847&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-20 17:22</a>
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
+不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Tequila_R  
+##### 43749#       发表于 2022-11-20 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58481134&amp;ptid=1712412" target="_blank">aiqopsha 发表于 2022-11-17 23:39</a>
+笑死，好友没有一个抽这个池子的</blockquote>
+真心觉得不如落地高杉<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUAWEI JAD-AL50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+
+*****
+
+####  J-002  
+##### 43750#       发表于 2022-11-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524804&amp;ptid=1712412" target="_blank">Tequila_R 发表于 2022-11-20 19:05</a>
+
+真心觉得不如落地高杉好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUA ...</blockquote>
+咕达咕哒出新卫星死活不落地也是传统了
+
+
+
+*****
+
+####  Blackson  
+##### 43751#       发表于 2022-11-20 21:43
+
+咕哒咕哒作为你游开服传统活动，哪一年玩起来还真是麻烦
+
+这次早早开了90+本，然而还得回去刷90本完成任务(不如说100任务太要命更确切一点)
+
+
+
+*****
+
+####  廖化  
+##### 43752#       发表于 2022-11-21 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477099&amp;ptid=1712412" target="_blank">sandro 发表于 2022-11-17 19:01</a>
+
+我日啊，怎么要通关平安京，我2.5都没打完，感觉难打的一比啊</blockquote>
+平安京其实还好，除了铃鹿御前+表滕太有点麻烦之外都还好，道满就是送。
+
+难的是后面一章的角神…………
+
+
+
+*****
+
+####  marxel  
+##### 43753#       发表于 2022-11-21 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58533969&amp;ptid=1712412" target="_blank">廖化 发表于 2022-11-21 12:12</a>
+
+平安京其实还好，除了铃鹿御前+表滕太有点麻烦之外都还好，道满就是送。
+
+难的是后面一章的角神………… ...</blockquote>
+没事，商店里蓝方块补货了，砸它<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dawning  
+##### 43754#       发表于 2022-11-22 17:36
+
+吃了一嘴狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  DET  
+##### 43755#       发表于 2022-11-22 19:14
+
+11月22日是夫妇之日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  廖化  
+##### 43756#       发表于 2022-11-22 20:33
+
+抽枪龙马沉到底了……连张活动李庄都没有……
+
+再尼玛的见<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  qixinno2  
+##### 43757#       发表于 2022-11-22 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十抽就一个三星活动礼装 太酷炫了
+
+
+
+*****
+
+####  飞霞精灵  
+##### 43758#       发表于 2022-11-23 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524804&amp;ptid=1712412" target="_blank">Tequila_R 发表于 2022-11-20 19:05</a>
+
+真心觉得不如落地高杉好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUA ...</blockquote>
+阿国的整体形象设计太敷衍了，放到10年前都算不了出众。
+
+人设这个随机英文蹦出来太尴尬了鹅……后面的武士机甲也没啥大吸引力。
+
+说得简单粗暴一点，同为舞女，不如免费送的玛塔哈丽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dawning  
+##### 43759#       发表于 2022-11-23 10:37
+
+国服由于千里眼，妖精国和泳装早就用完石头，然后等明年的公主，梅林了，中间的基本都回会跳过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Blackson  
+##### 43760#       发表于 2022-11-23 17:30
+
+至少国服因为千里眼可以少走很多弯路，否则按日服这乱来性子，有多少石头都不够使
+
+
+
+*****
+
+####  最爱面包超人  
+##### 43761#       发表于 2022-11-23 20:22
+
+请问一下各位现在到明年泳装能攒多少免费石头，想抽杀狐c呆和伊吹来着
+
+
+
+*****
+
+####  日蚀之阳  
+##### 43762#       发表于 2022-11-24 09:49
+
+ 本帖最后由 日蚀之阳 于 2022-11-24 09:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58576962&amp;ptid=1712412" target="_blank">最爱面包超人 发表于 2022-11-23 20:22</a>
+
+请问一下各位现在到明年泳装能攒多少免费石头，想抽杀狐c呆和伊吹来着</blockquote>差不多六百石头一百三呼符
+
+C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
+
+
+
+*****
+
+####  最爱面包超人  
+##### 43763#       发表于 2022-11-24 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58584540&amp;ptid=1712412" target="_blank">日蚀之阳 发表于 2022-11-24 09:49</a>
+
+差不多六百石头一百三呼符</blockquote>
+才这么一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+图片看不到啦
+
+
+
+*****
+
+####  妖刀  
+##### 43764#       发表于 2022-11-24 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589683&amp;ptid=1712412" target="_blank">最爱面包超人 发表于 2022-11-24 14:21</a>
+
+才这么一点吗
+
+图片看不到啦</blockquote>
+[https://www.bilibili.com/video/BV1QG4y1o7zR](https://www.bilibili.com/video/BV1QG4y1o7zR)
+
+有专门做这个统计的
+
+
+
+*****
+
+####  UNISONIA  
+##### 43765#       发表于 2022-11-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58522847&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-20 17:22</a>
+
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
+大概率到关服都不会落地了
+
+
+
+*****
+
+####  DET  
+##### 43766#       发表于 2022-11-24 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58590923&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2022-11-24 15:36</a>
+
+大概率到关服都不会落地了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">只要其它卡池流水不高，落地概率应该很高吧
+
+
+
+*****
+
+####  marxel  
+##### 43767#       发表于 2022-11-24 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58591061&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-24 15:43</a>
+
+只要其它卡池流水不高，落地概率应该很高吧</blockquote>
+高杉的问题是可能没有下一个咕哒咕哒活动让他落地<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  imlyc4  
+##### 43768#       发表于 2022-11-24 23:33
+
+刚才打高难刷新了半天好友，就是刷不到嘲讽杀狐，甚至跑去好友列表一个一个翻看统计，心想这概率真是绝了，明明还是有几个的，最后终于意识到可能也许大概是礼装筛选里点了只显示最大解放<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  atomicink  
+##### 43769#       发表于 2022-11-25 10:43
+
+高难刷2把就烦了，佩服那些当无限池刷的肝帝
+
+
+
+*****
+
+####  Blackson  
+##### 43770#       发表于 2022-11-25 11:55
+
+真要刷，接下来的圣诞和通古斯是真的手快有，手慢无的那种，要拼命刷。
+
+而且通古斯还挺需要配置的，就算能有平民打手你还是得抽卡池拿一张五星倍卡才能去打
+
+
+
+*****
+
+####  UNISONIA  
+##### 43771#       发表于 2022-11-25 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58591061&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-24 15:43</a>
+
+只要其它卡池流水不高，落地概率应该很高吧</blockquote>
+今年的流水砸成什么样了照样没落多少卫星……主要是画师之前暗示过因为有别的角色不会出成卡才让她画了马琴
+
+
+
+*****
+
+####  sandro  
+##### 43772#       发表于 2022-11-25 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605667&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2022-11-25 12:39</a>
+今年的流水砸成什么样了照样没落多少卫星……主要是画师之前暗示过因为有别的角色不会出成卡才让她画了马 ...</blockquote>
+日服不是好几个卡池都登顶了嘛
+
+
+
+*****
+
+####  UNISONIA  
+##### 43773#       发表于 2022-11-25 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58607582&amp;ptid=1712412" target="_blank">sandro 发表于 2022-11-25 14:14</a>
+
+日服不是好几个卡池都登顶了嘛</blockquote>
+你有没有注意过日服巅峰那几年的登顶和现在的登顶有什么区别？苹果谷歌官方给的登顶标准是保持在第一&gt;=24小时。以这个标准去筛的话那19年秋天以后没几个卡池符合的
+
+以财报数据而论，2020年相较2019年下滑39%，2021年在打出2.6这张底牌的情况下相较2020年下滑21%。今年因为秋冬的流水不行而且遭到战略性放弃（2.7的卡今年不出），相较去年的数据肯定是不乐观的，保守估计下滑10%都算少了。
+
+以淡季登顶没什么含金量而论，举个着名的例子：18年12月初的始皇卡池保持在第一的时间甚至还比较长，结果来年初官方冬FES上公布的流水前5都榜上无名，足够说明情况了
+
+
+
+*****
+
+####  AbigailWilliams  
+##### 43774#       发表于 2022-11-25 21:18
+
+运营到这个时间会有什么样的未来都不奇怪了啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kazemitoya  
+##### 43775#       发表于 2022-11-26 22:37
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三千万了
+
+我突然有种负罪感<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  shimotsuki14  
+##### 43776#       发表于 2022-11-27 11:59
+
+开活动扔了一单石头分配到阿国和龙马各一半无事发生
+前两天看完龙马那段剧情之后抽了两张呼符居然来了
+
+
+
+*****
+
+####  DET  
+##### 43777#       发表于 2022-11-27 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58633457&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-26 22:37</a>
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">科技号刷完了直接删好友就行了，可能是店家不记得了
+
+
+
+*****
+
+####  艾尔特翔  
+##### 43778#       发表于 2022-11-28 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58633457&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-26 22:37</a>
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三 ...</blockquote>
+和你一样，每天30~50万不等，确认后已经好几天了
+
+
+
+*****
+
+####  飞霞精灵  
+##### 43779#       发表于 2022-11-29 15:33
+
+这次几个角色塑造都挺不错的，虽然都在反复横跳但也算跳得不惹人厌。还有这什么天逆神也太丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  marxel  
+##### 43780#       发表于 2022-11-29 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58677812&amp;ptid=1712412" target="_blank">飞霞精灵 发表于 2022-11-29 15:33</a>
+这次几个角色塑造都挺不错的，虽然都在反复横跳但也算跳得不惹人厌。还有这什么天逆神也太丢人了 ...</blockquote>
+毕竟女儿在别人手上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  麻花疼  
+##### 43781#       发表于 2022-11-30 08:05
+
+练度全999了，衣服也满了，目前最缺的就是圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也算是一种坚持了。
+
+虽然不太可能，但如果你游安卓有新人的话可以加一下
+
+100,101,205,295
+
+
+
+*****
+
+####  绫魂h  
+##### 43782#       发表于 2022-12-1 20:01
+
+才想起来今天友情池没抽，卡了一下出了第五个哈贝喵，还挺高兴，就看到最后一个是三星活动礼装，活动都结束了，你给我活动礼装？一脸懵逼
+
+
+
+*****
+
+####  wfantasia  
+##### 43783#       发表于 2022-12-1 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685905&amp;ptid=1712412" target="_blank">麻花疼 发表于 2022-11-30 08:05</a>
+
+练度全999了，衣服也满了，目前最缺的就是圣杯
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也 ...</blockquote>
+求大佬给个好友100,108,488,216已申请
+
+
+
+*****
+
+####  麻花疼  
+##### 43784#       发表于 2022-12-1 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58711805&amp;ptid=1712412" target="_blank">wfantasia 发表于 2022-12-1 20:30</a>
+
+求大佬给个好友100,108,488,216已申请</blockquote>
+星海流风那个号是你么？
+
+通过了。
+
+
+
+*****
+
+####  wfantasia  
+##### 43785#       发表于 2022-12-1 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58711986&amp;ptid=1712412" target="_blank">麻花疼 发表于 2022-12-1 20:44</a>
+
+星海流风那个号是你么？
+
+通过了。</blockquote>
+感谢
+
+
+
+*****
+
+####  lightingstar  
+##### 43786#       发表于 2022-12-2 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685905&amp;ptid=1712412" target="_blank">麻花疼 发表于 2022-11-30 08:05</a>
+
+练度全999了，衣服也满了，目前最缺的就是圣杯
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也 ...</blockquote>
+大佬加你啦，拉特莉就是我
+
+谢谢啦
+
+
+
+*****
+
+####  麻花疼  
+##### 43787#       发表于 2022-12-2 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725821&amp;ptid=1712412" target="_blank">lightingstar 发表于 2022-12-2 16:53</a>
+
+大佬加你啦，拉特莉就是我
+
+谢谢啦</blockquote>
+没看到申请啊。。你重新申请下试试
+
+
+
+*****
+
+####  Humpy  
+##### 43788#       发表于 2022-12-2 20:34
+
+这几天一直在集中隔离，今天终于转居家了。
+
+带去的游戏玩累了，动画和电影看完了后，为了自娱自乐用ipad画了一张略有点涩涩的玛修（所谓饱暖思淫欲……）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+由于已经太习惯用WACOM的数位屏画图了，用ipad画的经验还是太少，这次倒是实验了不少笔刷……结果忘了颜色模式的事，转到电脑上发现图片颜色严重失真，还得慢慢调= =但好像也没完全调正就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次想画得肉感丰满一点，但似乎画成了轻型坦克，已经在脑内想象到咕哒大喊“你这肥猪……”的景象了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/02/203343hdd7d3r5d55dgz36.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0040.jpg</strong> (441.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 20:33 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| namelessashen| + 2|画得好啊，然而现在看到玛修就想到ntr了.|
+
+查看全部评分
+
+
+
+*****
+
+####  待宵  
+##### 43789#       发表于 2022-12-2 22:35
+
+100,144,066,636
+
+也求好友
+
+
+
+*****
+
+####  dawning  
+##### 43790#       发表于 2022-12-4 12:00
+
+去淘宝弄友情点了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dawning  
+##### 43791#       发表于 2022-12-4 21:24
+
+盟战黑贞赢了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，
+不亏是最容易搞定的女人<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  khxooo  
+##### 43792#       发表于 2022-12-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58767127&amp;ptid=1712412" target="_blank">dawning 发表于 2022-12-4 21:24</a>
+
+盟战黑贞赢了，
+
+不亏是最容易搞定的女人</blockquote>
+黑贞真的是一路从地狱组中杀出来的，最佳老婆这名号当之无愧。
+
+
+
+*****
+
+####  dawning  
+##### 43793#       发表于 2022-12-4 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58767888&amp;ptid=1712412" target="_blank">khxooo 发表于 2022-12-4 22:04</a>
+
+黑贞真的是一路从地狱组中&amp;# ...</blockquote>
+之前没怎么关注，今天看了下一路的对手，学妹，bx，总司，艾蕾，伽摩，
+
+这什么魔鬼赛程<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+黑贞这是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Urakawa  
+##### 43794#       发表于 2022-12-5 11:37
+
+停服公告出了 5号23:55～7号00:05
+
+[https://game.bilibili.com/fgo/h5/news.html#detailId=11583](https://game.bilibili.com/fgo/h5/news.html#detailId=11583)
+
+
+
+*****
+
+####  呆毛王赛高  
+##### 43795#       发表于 2022-12-5 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58776795&amp;ptid=1712412" target="_blank">Urakawa 发表于 2022-12-5 11:37</a>
+
+停服公告出了 5号23:55～7号00:05
+
+https://game.bilibili.com/fgo/h5/news.html#detailId=11583</blockquote>
+评论区真逆天
+
