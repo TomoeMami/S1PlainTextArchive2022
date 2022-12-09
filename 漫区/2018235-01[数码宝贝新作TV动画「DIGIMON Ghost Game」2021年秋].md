@@ -4093,3 +4093,23 @@ nmd真鬼啊？<img src="https://static.saraba1st.com/image/smiley/face2017/244.
 这新手环就是加新技 ...</blockquote>
 忒提斯兽的所有必杀技在换新手环之前就已经全解锁完了
 
+*****
+
+####  新HGCG  
+##### 392#       发表于 2022-12-4 21:43
+
+主角的手变异最后还要另外找木乃伊兽治疗……
+
+这种说得轻描淡写，他们也是习以为常了吧
+
+
+
+*****
+
+####  杂灰  
+##### 393#       发表于 2022-12-6 15:58
+
+宙哥人太好了，心态一直拉满
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
