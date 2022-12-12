@@ -6853,3 +6853,10 @@ https://www.bilibili.com/video/BV1UP4y1R7gc</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">为啥掌机这种电量吃紧的玩意还搞灯啊……这种凡是游戏设备都上灯到底是哪里来的奇怪审美
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有它这内置的设置UI也太难看了，又绿又黑看着真的好怪……
 
+*****
+
+####  bypass  
+##### 548#         楼主| 发表于 2022-12-9 17:17
+
+所以有收到 Ayaneo 2 的坛友了吗 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 体验如何？
+
