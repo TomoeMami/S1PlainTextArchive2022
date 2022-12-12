@@ -1740,3 +1740,275 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 别带飞了，不满玩家要越来越多了（悲
 
+*****
+
+####  医生狼多  
+##### 185#         楼主| 发表于 2022-12-9 11:10
+
+配乐无了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  chivalry  
+##### 186#       发表于 2022-12-9 11:11
+
+最佳rpg搏一搏
+
+*****
+
+####  shudushimo  
+##### 187#       发表于 2022-12-9 11:11
+
+最有可能的没了，走了
+
+*****
+
+####  sslink  
+##### 188#       发表于 2022-12-9 11:13
+
+最有可能的音乐都没得了，散了散了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  笨笨塞  
+##### 189#       发表于 2022-12-9 11:14
+
+个人觉得三的音乐不如二，二代没评上真是可惜了。
+
+*****
+
+####  cybernetics31  
+##### 190#       发表于 2022-12-9 11:14
+
+野鸡奖！
+
+*****
+
+####  ZOHAR=往世之痕  
+##### 191#       发表于 2022-12-9 11:17
+
+野鸡奖！
+
+
+
+*****
+
+####  医生狼多  
+##### 192#         楼主| 发表于 2022-12-9 11:28
+
+最佳rpg也没了
+
+*****
+
+####  shudushimo  
+##### 193#       发表于 2022-12-9 11:29
+
+寄
+
+*****
+
+####  脸宽  
+##### 194#       发表于 2022-12-9 11:30
+
+结束力
+
+*****
+
+####  langleizhi  
+##### 195#       发表于 2022-12-9 11:30
+
+这个从一开始就没戏的吧，坛友也太敢做梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 196#       发表于 2022-12-9 11:30
+
+剑指goty！！<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布里兰特  
+##### 197#       发表于 2022-12-9 11:33
+
+颗粒无收，我的评价是不如OO
+
+
+
+*****
+
+####  Rary  
+##### 198#       发表于 2022-12-9 12:04
+
+有点遗憾
+
+*****
+
+####  shudushimo  
+##### 199#       发表于 2022-12-9 12:04
+
+最佳陪跑
+
+
+
+*****
+
+####  医生狼多  
+##### 200#         楼主| 发表于 2022-12-9 12:06
+
+全部木大！
+
+*****
+
+####  Acerola  
+##### 201#       发表于 2022-12-9 12:08
+
+没想到连个dlc的预告也没有，真就全程陪跑
+
+*****
+
+####  アヘ顔  
+##### 202#       发表于 2022-12-9 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下是不是实锤不如破晓了
+
+
+
+*****
+
+####  武内P  
+##### 203#       发表于 2022-12-9 12:12
+
+恐成最大输家
+
+*****
+
+####  wjbdasd  
+##### 204#       发表于 2022-12-9 12:13
+
+<blockquote>アヘ顔 发表于 2022-12-9 12:10
+这下是不是实锤不如破晓了</blockquote>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。
+
+*****
+
+####  shiko  
+##### 205#       发表于 2022-12-9 12:13
+
+6个年度提名里3个全程陪跑，一点都不想端水的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  狸狸狐  
+##### 206#       发表于 2022-12-9 12:14
+
+年度陪跑！
+
+*****
+
+####  sin.yugi  
+##### 207#       发表于 2022-12-9 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846922&amp;ptid=2105016" target="_blank">アヘ顔 发表于 2022-12-8 23:10</a>
+这下是不是实锤不如破晓了</blockquote>
+破晓有<img src="https://static.saraba1st.com/image/smiley/carton2017/239.png" referrerpolicy="no-referrer">，xb3怎么比？
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  sanxgh571  
+##### 208#       发表于 2022-12-9 12:16
+
+虽然陪跑，必秒破晓！
+
+*****
+
+####  ラブハナ  
+##### 209#       发表于 2022-12-9 12:17
+
+去tm的野鸡奖，呜呜呜，xb3最高！！！
+
+
+
+*****
+
+####  大哀之君  
+##### 210#       发表于 2022-12-9 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846966&amp;ptid=2105016" target="_blank">wjbdasd 发表于 2022-12-9 12:13</a>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
+懂了，XB3原来是硬实力冠军
+
+
+
+*****
+
+####  ACGN若翼  
+##### 211#       发表于 2022-12-9 12:49
+
+重新翻这贴真是喜感
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  aimbot  
+##### 212#       发表于 2022-12-9 12:52
+
+野鸡奖不拿也罢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nyantype  
+##### 213#       发表于 2022-12-9 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846966&amp;ptid=2105016" target="_blank">wjbdasd 发表于 2022-12-9 12:13</a>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
+那位属于是刻舟求剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  ZyLintheMax  
+##### 214#       发表于 2022-12-9 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58847030&amp;ptid=2105016" target="_blank">sin.yugi 发表于 2022-12-9 12:15</a>
+破晓有，xb3怎么比？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-play ...</blockquote>
+等DLC4真<img src="https://static.saraba1st.com/image/smiley/carton2017/239.png" referrerpolicy="no-referrer">出来再比
+
+
+
+*****
+
+####  sin.yugi  
+##### 215#       发表于 2022-12-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58849117&amp;ptid=2105016" target="_blank">ZyLintheMax 发表于 2022-12-9 01:23</a>
+等DLC4真出来再比</blockquote>
+万一高桥gg来个都市六侠传呢？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+
+*****
+
+####  ZyLintheMax  
+##### 216#       发表于 2022-12-9 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58849472&amp;ptid=2105016" target="_blank">sin.yugi 发表于 2022-12-9 14:48</a>
+万一高桥gg来个都市六侠传呢？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-pl ...</blockquote>
+那XB3耗似呗还能怎样
+
