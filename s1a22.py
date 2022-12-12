@@ -49,6 +49,21 @@ def filter_time(troll,input_list):
     else:
         return return_dict
 
+
+def get_time(pa):
+    global result_dcit
+    if Path(pa).is_dir():
+        total_time = []
+        thread_title = re.findall(r'\d{5,7}-?(.*)$',str(pa))[0]
+        for sub_pa in Path(pa).iterdir():
+            total_time = total_time + find_time(sub_pa)
+        result = filter_time(forum,total_time)
+    else:
+        thread_title = re.findall(r'\d{5,7}-\d{1,3}-?(.*).md$',str(pa))[0]
+        result = filter_time(forum,find_time(pa))
+    if(result):
+        result_dict[forum][thread_title] = result
+
 year = '2022'
 current_date = datetime.now().strftime("%Y%m%d")
 date_list = [pd.Timestamp(x).strftime("%Y-%-m-%-d") for x in pd.date_range(year+'0101',current_date)]
@@ -60,17 +75,12 @@ result_dict = {'troll':{},'game':{},'anime':{},'vtb':{}}
 for forum in forum_dict.keys():
     for sub_forum in forum_dict[forum]:
         for pa in Path('./'+sub_forum+'/').iterdir():
-            if Path(pa).is_dir():
-                total_time = []
-                thread_title = re.findall(r'\d{5,7}-?(.*)$',str(pa))[0]
-                for sub_pa in Path(pa).iterdir():
-                    total_time = total_time + find_time(sub_pa)
-                result = filter_time(forum,total_time)
+            if '0无法访问' in str(pa):
+                for pb in Path(pa).iterdir():
+                    get_time(pb)
             else:
-                thread_title = re.findall(r'\d{5,7}-\d{1,3}-?(.*).md$',str(pa))[0]
-                result = filter_time(forum,find_time(pa))
-            if(result):
-                result_dict[forum][thread_title] = result
+                get_time(pa)
+            
 mkdir('./S1A22/')
 with open('./S1A22/S1A22-'+year+'.json', "w", encoding="utf-8") as f:
     f.write(json.dumps(result_dict,indent=2,ensure_ascii=False))
