@@ -2460,3 +2460,39 @@ EA 与 光荣特库摩 合作的狩猎游戏《WILD HEARTS》将于 11月17日23
 
 这个木工活好土
 
+*****
+
+####  Piano-Forest  
+##### 286#         楼主| 发表于 2022-12-7 11:14
+
+参展TGA
+
+あづまの国にまた一体、獣が现れた
+
+12月9日 午前9:30 からの #TheGameAwards    を见逃さず、新たな獣に相まみえるのだ。
+<img src="https://p.sda1.dev/8/1c8d7475608746fa3e3d16c5ceaf09fc/20221207_111208.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  东方定助  
+##### 287#       发表于 2022-12-7 11:19
+
+月下雷鸣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tsubaki  
+##### 288#       发表于 2022-12-7 11:22
+
+看着像讨鬼极那个狼BOSS改改
+
+
+
+*****
+
+####  Piano-Forest  
+##### 289#         楼主| 发表于 2022-12-9 14:58
+
+【《WILD HEARTS》游戏大奖预告片：强大的怪兽 驯服狂野的世界！】 
+[https://m.bilibili.com/video/BV1p24y1Q7Hu](https://m.bilibili.com/video/BV1p24y1Q7Hu)
+
