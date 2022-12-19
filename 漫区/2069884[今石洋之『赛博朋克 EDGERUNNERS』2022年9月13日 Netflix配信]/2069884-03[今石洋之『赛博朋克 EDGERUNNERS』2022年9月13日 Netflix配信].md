@@ -2792,3 +2792,12 @@ Make sure to raise your cups, mugs, and monowires high when the winner is announ
 <img src="http://tva3.sinaimg.cn/large/006ajUXPly1h8wqc00epsj31hc0u0tvp.jpg" referrerpolicy="no-referrer">
 [https://twitter.com/edgerunners/status/1599781434205822978](https://twitter.com/edgerunners/status/1599781434205822978)
 
+*****
+
+####  ipcjs  
+##### 3191#       发表于 2022-12-17 03:08
+
+女主为啥执着于去月球？一片荒芜，完全是鸟不拉屎的地方呀<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
