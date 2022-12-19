@@ -3930,3 +3930,1819 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 2022-10-4 19:51 上传
 
+*****
+
+####  红魔馆的糖  
+##### 397#       发表于 2022-12-11 19:09
+
+新DLC，请问这是月姬格斗么<img src="https://p.sda1.dev/8/e2970f38b7488945a1e83f0e777907da/CMP_20221211190847313.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  花枝鱿鱼面  
+##### 398#       发表于 2022-12-11 19:10
+
+你们FATE没有自己的格斗游戏吗
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  小李子大脸猫  
+##### 399#       发表于 2022-12-11 19:19
+
+我还以为翻新的有珠与澄子会是优先考虑的对象
+
+*****
+
+####  电波系腑海林  
+##### 400#       发表于 2022-12-11 19:20
+
+这下FGO也有格斗游戏了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  狗屁不通  
+##### 401#       发表于 2022-12-11 19:28
+
+真的牛批
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 402#       发表于 2022-12-11 19:29
+
+呃呃了，能不能出一个自己的格斗游戏
+
+前两个就算了这两个算什么东西？
+
+*****
+
+####  水野貴弘  
+##### 403#       发表于 2022-12-11 19:31
+
+呕
+
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 404#       发表于 2022-12-11 19:40
+
+<img src="https://img.saraba1st.com/forum/202212/11/194020t10h11uy40y14juj.jpg" referrerpolicy="no-referrer">
+
+<strong>YPMVJCXOW%$%GP~K8HA@HWD.jpg</strong> (161.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 19:40 上传
+
+哪来的脸把这俩放封面上？类型月亮你死不死啊
+
+
+
+*****
+
+####  黑上シグマ  
+##### 405#       发表于 2022-12-11 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这牛肉丸还和谐了，穿了内衣
+
+*****
+
+####  Marro  
+##### 406#       发表于 2022-12-11 19:52
+
+为什么一开始不整一个fate格斗呢
+
+*****
+
+####  alucardcz  
+##### 407#       发表于 2022-12-11 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这牛肉丸怎么还穿衣服的 丢人
+
+
+
+*****
+
+####  蓮華  
+##### 408#       发表于 2022-12-11 19:59
+
+还以为怎么都要轮到魔夜角色或者阿良句之类的了，呵呵
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  雪儿  
+##### 409#       发表于 2022-12-11 20:02
+
+牛肉丸穿的太多了 是从大秦异闻带过去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 410#       发表于 2022-12-11 20:04
+
+这牛若丸设计感觉还行？有点儿夜下女主的味道，有66取消。
+
+岩窟王感觉又是凑活角色，没啥特色
+
+这游戏的灵感是不是都在猫猫那里用完了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  八木沼了一  
+##### 411#       发表于 2022-12-11 20:13
+
+ 本帖最后由 八木沼了一 于 2022-12-11 20:20 编辑 
+
+好，我看看他还敢不敢再碰Roa对伯爵的剧情，到时候再炎上就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看了下，原来pv里已经玩起来了，嘻嘻
+
+*****
+
+####  茴香蚪的马甲  
+##### 412#       发表于 2022-12-11 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58891881&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-11 19:59</a>
+
+还以为怎么都要轮到魔夜角色或者阿良句之类的了，呵呵
+
+论坛助手,iPhone</blockquote>
+阿良句估计得等月姬R里线先出？至于莲、白莲、希翁这些，我估计得MB新作才能有了。
+
+*****
+
+####  whzfjd  
+##### 413#       发表于 2022-12-11 20:19
+
+穿衣服就没意思了
+
+*****
+
+####  蓮華  
+##### 414#       发表于 2022-12-11 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892333&amp;ptid=2026924" target="_blank">茴香蚪的马甲 发表于 2022-12-11 20:17</a>
+阿良句估计得等月姬R里线先出？至于莲、白莲、希翁这些，我估计得MB新作才能有了。 ...</blockquote>
+妹妹在表线也没动武嘛，也不是出了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  弁天  
+##### 415#       发表于 2022-12-11 20:30
+
+真忒么以为玩meltyblood的很爱樱井光拉的那坨屎呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 416#       发表于 2022-12-11 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892017&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-11 20:04</a>
+
+这牛若丸设计感觉还行？有点儿夜下女主的味道，有66取消。
+
+岩窟王感觉又是凑活角色，没啥特色</blockquote>
+岩窟王超杀这个不是宝具啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 417#       发表于 2022-12-11 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892271&amp;ptid=2026924" target="_blank">八木沼了一 发表于 2022-12-11 20:13</a>
+
+好，我看看他还敢不敢再碰Roa对伯爵的剧情，到时候再炎上就好玩了
+
+看了下，原来pv里已经玩起来了， ...</blockquote>
+月姫罗亚又不认识伯爵，而且没仇啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 418#       发表于 2022-12-11 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892492&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-11 20:22</a>
+
+妹妹在表线也没动武嘛，也不是出了
+
+论坛助手,iPhone</blockquote>
+妹妹的底细毕竟很多粉丝早都知道了，但阿良句作为谜底尚未揭晓的重制版原创角色，肯定要捂得更严实一些。
+
+*****
+
+####  八木沼了一  
+##### 419#       发表于 2022-12-11 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892703&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-11 20:31</a>
+
+月姫罗亚又不认识伯爵，而且没仇啊</blockquote>
+呵呵，我看是忘记伯爵drama炎上那会急吼吼出来灭火彻底分开月姬和fate的丑态了
+
+在开场对话反复试探的样子真几把贱
+
+就这么爱恶心月姬玩家？
+
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 420#       发表于 2022-12-11 20:44
+
+傻逼型月不会真觉得mb引流到了很多fgo玩家吧<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  医生狼多  
+##### 421#       发表于 2022-12-11 21:06
+
+转向型月格斗也就算了，这是要转fgo格斗吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 422#       发表于 2022-12-11 21:07
+
+《月姬格斗 TYPE LUMINA》12.15免费更新要点整理：
+
+· 新可用角色「牛若丸」与「岩窟王」参战，追加对应的角色剧情与对战场地
+
+· 单人模式“剧情”添加新Boss Rush内容，剧情由奈须蘑菇撰写，体量为系列最大规模
+
+· 加入《月姬格斗 Actress Again》重编版BGM（共10首）
+
+· 为所有角色加入4种全新配色
+
+· 新增加530种称号
+
+· 添加法文、西班牙文、巴西葡萄牙文字幕支持
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 423#       发表于 2022-12-11 21:16
+
+ 本帖最后由 红魔馆的糖 于 2022-12-11 21:18 编辑 
+
+这游戏的新角色思路感觉越来越和gbvs看齐了
+
+后期手游运营出一堆手游玩家喜欢但是没玩过手游的格斗玩家不喜欢的角色，实际上这两个群体的转化率低的可怜
+
+一堆nbcs的玩意，质量还越来越低，你不dead谁dead，GBVS电狼小老头之类的角色热度加起来不如狐狸一个高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RGm  
+##### 424#       发表于 2022-12-11 21:19
+
+妈的，七夜呢？mb的角色不出，出fgo的cjb。
+
+*****
+
+####  zakki  
+##### 425#       发表于 2022-12-11 21:20
+
+牛若丸也算不上玩家喜欢吧，人气根本轮不到她
+
+
+
+*****
+
+####  小李子大脸猫  
+##### 426#       发表于 2022-12-11 21:25
+
+魔夜没法和新月姬对接，新月姬进度也荒着，旧月姬彻底斩断，这不就FGO化了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Marro  
+##### 427#       发表于 2022-12-11 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58893673&amp;ptid=2026924" target="_blank">医生狼多 发表于 2022-12-11 21:06</a>
+
+转向型月格斗也就算了，这是要转fgo格斗吗</blockquote>
+转型月格斗那不开心坏了
+
+*****
+
+####  黑上シグマ  
+##### 428#       发表于 2022-12-11 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有句讲句你上牛肉丸还不如上武藏，武藏可以说她是能力发作穿越过来的，牛肉丸是什么鬼啦
+
+
+
+*****
+
+####  gpx234mqx  
+##### 429#       发表于 2022-12-11 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894348&amp;ptid=2026924" target="_blank">黑上シグマ 发表于 2022-12-11 21:34</a>
+
+有句讲句你上牛肉丸还不Y ...</blockquote>
+又是世界本身召唤呗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+因为不是靠召唤术式，废狗谁都能来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+牛肉丸莫名其妙，还不如上酒吞茨木这些鬼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  小李子大脸猫  
+##### 430#       发表于 2022-12-11 22:26
+
+其实做不成型月格斗的，MBTL这演出只能是对老MB的翻新，但本质上还是太单薄了，牛若丸的这交叉闪现演出，还不如拳皇15牙刀的那个有魄力感
+
+*****
+
+####  الطائر  
+##### 431#       发表于 2022-12-11 22:27
+
+懂了，只要FGO实装紫苑，就能如闪电般归来
+
+
+
+*****
+
+####  米澤穂信  
+##### 432#       发表于 2022-12-11 22:33
+
+算了吧，别引流了，痴心妄想，真不是一路人
+
+
+
+*****
+
+####  查马丁魔术师  
+##### 433#       发表于 2022-12-11 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58895922&amp;ptid=2026924" target="_blank">米澤穂信 发表于 2022-12-11 22:33</a>
+
+算了吧，别引流了，痴心妄想，真不是一路人</blockquote>
+确实，现在很多日本人也觉得是想给MBTL引流FGO的玩家，但这想法纯属武内蘑菇的又一次脑子有泡找喷，手游玩家大量不碰游戏机的....日本大量老任玩家都不碰PC和PS游戏的...引个鬼啊
+
+
+
+*****
+
+####  whzfjd  
+##### 434#       发表于 2022-12-11 23:11
+
+也别想得这么绝缘，FGO 街机不是挺滋润的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Gundamslave  
+##### 435#       发表于 2022-12-11 23:31
+
+再见了您呢
+
+
+
+*****
+
+####  cuive  
+##### 436#       发表于 2022-12-11 23:45
+
+ 本帖最后由 cuive 于 2022-12-11 23:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202212/11/234721iqjx0aq9racb6rab.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3F3A85D7-88B6-422E-81FE-E7E4C2BD0116.jpeg</strong> (391.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:47 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/234442apxsyaqwahwataqd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A80B7615-E419-4B63-8ECA-94D9D6B50C69.jpeg</strong> (260.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/234440fvg8axggq1iqd4av.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>81D15C35-E8DD-49B5-A1B2-41B04F0313E6.jpeg</strong> (90.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/234941il6affv22g23flg3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CBD7AFF5-6543-4DC4-98C4-A11006B5A2C8.jpeg</strong> (166.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:49 上传
+
+
+
+*****
+
+####  Gundamslave  
+##### 437#       发表于 2022-12-12 00:06
+
+看来真炎上了
+
+
+
+*****
+
+####  ParadiseMartyr  
+##### 438#       发表于 2022-12-12 00:13
+
+哈哈哈。幸好我没买。什么都他妈能被fgo污染
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山岚夜雨  
+##### 439#       发表于 2022-12-12 00:19
+
+我倒是没意见啦，毕竟是免费更新，能不能把前作就有的两仪式给弄出来
+
+*****
+
+####  查马丁魔术师  
+##### 440#       发表于 2022-12-12 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58898333&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 00:13</a>
+
+哈哈哈。幸好我没买。什么都他妈能被fgo污染
+
+—— 来自 S1Fun</blockquote>
+这个纯属武内脑抽思维+1，两边都不讨好，只有被喷....
+
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 441#       发表于 2022-12-12 00:33
+
+有没有楼友给点炎上句子我也去发
+
+*****
+
+####  Porsche  
+##### 442#       发表于 2022-12-12 00:41
+
+今天的大会是真的战得一个酣畅淋漓从开始高潮到结尾<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+然后惯例的结尾游戏更新消息环节现场和群里都已经把期待度提到最高了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+结果鸭音上来就提了一句是你们绝对没猜到的两个角色，群里还在往惊喜的方向去幻想<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+到了pv出来的时候，整个群都沉默了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+总结五个字，型月**
+
+
+
+*****
+
+####  查马丁魔术师  
+##### 443#       发表于 2022-12-12 00:42
+
+这弹是最后一次免费更新，明年估计会有主线更新那种的大幅度更新吧，我估计三月日本EVO公布，付费DLC
+
+*****
+
+####  cuive  
+##### 444#       发表于 2022-12-12 00:44
+
+<img src="https://img.saraba1st.com/forum/202212/12/004325w6116vnje50ju35v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A1B8DDA5-81FB-4014-A0CE-48DCE85B6353.jpeg</strong> (329.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004326gplinjd4zi2n1f2j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E7CD23DF-B3B5-471E-8ACE-2FD798AAF549.jpeg</strong> (365.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004326uxcwezdbmszd030c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>27074219-2B16-4677-BE51-8533BC91EBBE.jpeg</strong> (418.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004328m2jrdi4nvuydxfyi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7558A86C-7878-47EA-B551-E089A6BC6EEF.jpeg</strong> (384.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004329pibi4tiutodrodyn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>24CCC600-08ED-4452-9FB2-65120594B35B.jpeg</strong> (344.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004329afoi7zrcg61eioxf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C8CF51F6-2257-4C85-B6F0-798FD4F7CC96.jpeg</strong> (95.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004330z168gx6xsf6qwmzr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>691CB536-0C72-46F5-8DEE-60A6C1DA8E79.jpeg</strong> (122.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004332wgl8d7arssry7gs4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB0BB123-84AB-4A33-9984-21423420B31A.jpeg</strong> (580.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004332bfzvfwqlfwnilnnn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8D307093-4394-42D6-8B90-693369D7105B.jpeg</strong> (263.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004333mdem00jmv3xvjm9e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>13332315-E2B9-4521-88C0-EB9FCDE80241.jpeg</strong> (110.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004334unoi8z4mxml8m4xm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1340FE7B-0900-47B6-A8FB-43AC35E50C6A.jpeg</strong> (301.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004334w1980e8270kwwrzn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74A7D9F7-E0F3-4ADD-841F-1F4937AFE935.jpeg</strong> (223.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004335lhjrrcwzh96q4hih.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9032DF01-C488-4BA1-AB06-1E79525F47A3.jpeg</strong> (138.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004336fzozptpdvxoxdrd0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>83DC5F63-7332-4DAB-80BF-DDE86ED51892.jpeg</strong> (267.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004336s9u5ou0xm5na5dmu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>415F5194-7F2F-49EF-923A-E7510095F52C.jpeg</strong> (166.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004338ns1b10tzukrjaebb.png" referrerpolicy="no-referrer">
+
+<strong>F2C9B6A5-1EFB-4D6A-9ECB-8DFBD6F3156B.png</strong> (421.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004339fzvwjfek73ej2wwu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2B3829A4-C26E-4C57-90D5-5CBF89EE8536.jpeg</strong> (391.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004339pxn2s2cq66ce1uux.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>08062185-3633-47A4-A1A9-61CFB5A6F5C8.jpeg</strong> (260.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004340zzcn7hx7g2gp0itx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3A06E918-6D01-4E5C-A570-405040C68F37.jpeg</strong> (90.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004340od400gup0jj7kk03.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E4D7D37C-37FF-44F5-9E5C-B6C1F5EFF124.jpeg</strong> (73.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004341mslgu31oo19u59zx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>78296673-5B84-487F-A7CA-9656FC5FBEAF.jpeg</strong> (65.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+*****
+
+####  零壹贰叁  
+##### 445#       发表于 2022-12-12 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说型月真的脑子不好
+要出mb续作也应该等主线出完
+初版真的就是个半成品，剧情一坨屎
+然后慢慢做补了个剧透版更好一点的b路线
+虽然知道出fgo是为了拉人玩游戏，但是真的挺烂的，而且格斗游戏这东西寿命没这么长的，真的能熬到里线+新歌月然后达到mbaacc的剧情水平吗
+
+
+
+*****
+
+####  八木沼了一  
+##### 446#       发表于 2022-12-12 01:16
+
+嘻嘻，求仁得仁咯
+
+
+
+*****
+
+####  Booorunestud  
+##### 447#       发表于 2022-12-12 03:24
+
+一员？三员！
+来点月姬格斗原作截图
+<img src="https://p.sda1.dev/8/2e378530ef8f99838e8ce0b892505907/CMP_20221212032445524.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzp05402  
+##### 448#       发表于 2022-12-12 03:44
+
+引流不是问题但你至少给一个非fgo的角色啊，不要只有fgo啊，平衡一下嘛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  剣崎比留子  
+##### 449#       发表于 2022-12-12 08:26
+
+steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Mr1z  
+##### 450#       发表于 2022-12-12 08:37
+
+笑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  水野貴弘  
+##### 451#       发表于 2022-12-12 08:44
+
+是是，买你那60刀初始人物十个出头的2021年像素格斗游戏的都是FGO民
+
+我就是那NS一份steam一份的贱逼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+我麻利地滚，steam上差评一个，以后不会再玩了
+
+
+
+*****
+
+####  Mr1z  
+##### 452#       发表于 2022-12-12 09:01
+
+我玩这个游戏网战基本没赢过，十盘里面能赢一盘就都属于是我运气好碰上的，我玩这个游戏图个啥，不就是等着你出几个老角色看看剧情模式里面这些角色在新月姬背景下有什么变动不是吗？
+结果pia地一下出两个非月姬角色，我甚至在想是不是某菌类还没做完紫苑的相关设定
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mr1z  
+##### 453#       发表于 2022-12-12 09:02
+
+ 本帖最后由 Mr1z 于 2022-12-12 09:06 编辑 
+
+风怒
+
+*****
+
+####  Mr1z  
+##### 454#       发表于 2022-12-12 09:02
+
+ 本帖最后由 Mr1z 于 2022-12-12 09:05 编辑 
+
+风怒
+
+
+
+*****
+
+####  MMIno  
+##### 455#       发表于 2022-12-12 09:16
+
+真的恶心吐了，型月能不能携手暴雪一起死啊
+
+*****
+
+####  蓮華  
+##### 456#       发表于 2022-12-12 09:17
+
+<img src="https://img.saraba1st.com/forum/202212/12/091754dzq8h51l1fff8565.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212091746.png</strong> (17.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 09:17 上传
+
+
+
+*****
+
+####  查马丁魔术师  
+##### 457#       发表于 2022-12-12 09:32
+
+也不是第一次脑抽了....虽然武内是唯一能鞭策懒鬼蘑菇的人，但是他神奇的商业思维从来没有少过....
+
+蘑菇本人一直最痴迷于放飞自我的民科SF作品FE也是奇葩行为，那个游戏性还不如俄罗斯方块的鬼东西居然还让BB浪费产能去重制....经常做无用功也能越做越大的伪公司（本质还是社团）也是离谱
+
+
+
+*****
+
+####  蓮華  
+##### 458#       发表于 2022-12-12 09:50
+
+现在引流一份是一份，死忠买都买了，除了打打差评外还能伤害到他什么不成
+
+也许这是全世界营销学总结出的规律吧，死忠的情感是最不必在意的
+
+樱井那坨drama屎炎上的时候把月姬和fate世界彻底分开了，说得很真的一样，我估计也是月姬re要卖了急着灭灭火
+
+现在还不是混一起该出出，嘴上哄哄而已，本质渣男行为，该出轨出轨
+
+月姬re下部到时候出了难道还能不买<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zakki  
+##### 459#       发表于 2022-12-12 10:45
+
+说白了，你出一个呆毛大家都笑笑调侃下，出一个马修倒也能忍，出一个伯爵更是在炎上边缘试探，出牛若丸就是纯纯的找骂了
+
+
+
+*****
+
+####  真实之影  
+##### 460#       发表于 2022-12-12 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这烂活整的，哪怕从隔壁腋下搬个角色过来都比上fgo的强
+
+
+
+*****
+
+####  smdzh2  
+##### 461#       发表于 2022-12-12 11:14
+
+都是早见配音，腋下的Orie不比牛肉丸强114514倍？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  user_3399  
+##### 462#       发表于 2022-12-12 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58899820&amp;ptid=2026924" target="_blank">Booorunestud 发表于 2022-12-12 03:24</a>
+
+一员？三员！
+
+来点月姬格斗原作截图</blockquote>
+男神自己的公主呢？
+
+
+
+*****
+
+####  hello0607  
+##### 463#       发表于 2022-12-12 11:42
+
+<blockquote>Booorunestud 发表于 2022-12-12 03:24
+一员？三员！
+
+来点月姬格斗原作截图</blockquote>
+草 想起这个了
+
+<img src="https://img.saraba1st.com/forum/202212/12/114249e4yk8nm8kr4f7i44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02F6D253-E68E-4BD2-9C3C-56CE6CD9A09B.jpeg</strong> (135.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-12 11:42 上传
+
+
+
+*****
+
+####  Booorunestud  
+##### 464#       发表于 2022-12-12 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58902804&amp;ptid=2026924" target="_blank">user_3399 发表于 2022-12-12 11:19</a>
+男神自己的公主呢？</blockquote>
+公主在月姬格斗只是外人 必须support
+
+*****
+
+####  Booorunestud  
+##### 465#       发表于 2022-12-12 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58902804&amp;ptid=2026924" target="_blank">user_3399 发表于 2022-12-12 11:19</a>
+男神自己的公主呢？</blockquote>
+公主在月姬格斗只是外人 必须support
+
+
+
+*****
+
+####  cuive  
+##### 466#       发表于 2022-12-12 13:26
+
+
+
+*****
+
+####  蓮華  
+##### 467#       发表于 2022-12-12 13:38
+
+<img src="https://img.saraba1st.com/forum/202212/12/133437x4uduq5rpdecznuh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212133428.png</strong> (19.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 13:34 上传
+
+等一个差评如潮
+
+
+
+*****
+
+####  弁天  
+##### 468#       发表于 2022-12-12 13:44
+
+<img src="https://img.saraba1st.com/forum/202212/12/134254bbtltbiib5utm0bt.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212132106.png</strong> (166.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 13:42 上传
+
+重新定义唐突<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+该滚的是你旧メルブラ民吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  iriyano  
+##### 469#       发表于 2022-12-12 13:47
+
+差评归来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  电磁炮233  
+##### 470#       发表于 2022-12-12 14:03
+
+嫌魔夜冷饭卖的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  查马丁魔术师  
+##### 471#       发表于 2022-12-12 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904845&amp;ptid=2026924" target="_blank">电磁炮233 发表于 2022-12-12 14:03</a>
+
+嫌魔夜冷饭卖的太好了
+
+—— 来自 S1Fun</blockquote>
+魔夜肯定卖的没月姬R好....很可能差至少一倍....
+
+
+
+*****
+
+####  电磁炮233  
+##### 472#       发表于 2022-12-12 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904955&amp;ptid=2026924" target="_blank">查马丁魔术师 发表于 2022-12-12 14:12</a>
+
+魔夜肯定卖的没月姬R好....很可能差至少一倍....</blockquote>
+就加了个配音其他几乎零成本，能卖这么多还不够啊
+
+
+
+*****
+
+####  Caa  
+##### 473#       发表于 2022-12-12 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904955&amp;ptid=2026924" target="_blank">查马丁魔术师 发表于 2022-12-12 14:12</a>
+
+魔夜肯定卖的没月姬R好....很可能差至少一倍....</blockquote>
+四舍五入快十年的老游戏，就加了个配音，能贡献很大销量的官方中文还有点拉拉的，还要多少
+
+*****
+
+####  エーデルガルト  
+##### 474#       发表于 2022-12-12 14:31
+
+你叫fate格斗fgo格斗型月格斗随便你怎么搞，我看都不会看一眼
+
+不要用MeltyBlood这个名字骗我买完，再搞这种挂羊头卖狗肉的事情
+
+
+
+*****
+
+####  ParadiseMartyr  
+##### 475#       发表于 2022-12-12 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905168&amp;ptid=2026924" target="_blank">Caa 发表于 2022-12-12 14:27</a>
+四舍五入快十年的老游戏，就加了个配音，能贡献很大销量的官方中文还有点拉拉的，还要多少 ...</blockquote>
+官中哪版好一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  Caa  
+##### 476#       发表于 2022-12-12 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905443&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 14:44</a>
+
+官中哪版好一点
+
+—— 来自 S1Fun</blockquote>
+简中非常直白，繁中的词句稍微做了点润色
+
+
+
+*****
+
+####  ParadiseMartyr  
+##### 477#       发表于 2022-12-12 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905963&amp;ptid=2026924" target="_blank">Caa 发表于 2022-12-12 15:20</a>
+简中非常直白，繁中的词句稍微做了点润色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只学过标日初级的水平玩原版会有问题吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Caa  
+##### 478#       发表于 2022-12-12 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58906013&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 15:23</a>
+
+只学过标日初级的水平玩原版会有问题吗
+
+—— 来自 S1Fun</blockquote>
+如果像跟中文一样理解全文的话，N2都够呛，只是看懂在讲啥倒没问题……
+
+*****
+
+####  輝夜月  
+##### 479#       发表于 2022-12-12 15:25
+
+型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好
+
+
+
+*****
+
+####  astrayl  
+##### 480#       发表于 2022-12-12 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么烂活儿
+
+哎，天国的月2<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kisskick  
+##### 481#       发表于 2022-12-12 17:23
+
+想了想，出魔箱角色是好话还是坏活啊
+
+*****
+
+####  アルジュナ  
+##### 482#       发表于 2022-12-12 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58900614&amp;ptid=2026924" target="_blank">水野貴弘 发表于 2022-12-12 08:44</a>
+
+是是，买你那60刀初始人物十个出头的2021年像素格斗游戏的都是FGO民
+
+我就是那NS一份steam一份的贱逼 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/12/183038h4ilg11rl2lk1l7o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212182906.png</strong> (20.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 18:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这哥们和你一样
+
+
+
+*****
+
+####  user_3399  
+##### 483#       发表于 2022-12-12 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58903633&amp;ptid=2026924" target="_blank">Booorunestud 发表于 2022-12-12 12:35</a>
+
+公主在月姬格斗只是外人 必须support</blockquote>
+草
+
+
+
+*****
+
+####  icecry  
+##### 484#       发表于 2022-12-12 19:55
+
+**tm抱着你家废特活一辈子吧<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  林无德  
+##### 485#       发表于 2022-12-12 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58906069&amp;ptid=2026924" target="_blank">輝夜月 发表于 2022-12-12 15:25</a>
+
+型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好</blockquote>
+那得改叫type-fate啊，moon算个der，也配跟高贵的fate并列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Gundamslave  
+##### 486#       发表于 2022-12-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910328&amp;ptid=2026924" target="_blank">林无德 发表于 2022-12-12 20:04</a>
+那得改叫type-fate啊，moon算个der，也配跟高贵的fate并列</blockquote>
+那也是type/grand order啊，fsn是什么屎也配和go并列
+
+*****
+
+####  林无德  
+##### 487#       发表于 2022-12-12 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910753&amp;ptid=2026924" target="_blank">Gundamslave 发表于 2022-12-12 20:36</a>
+
+那也是type/grand order啊，fsn是什么屎也配和go并列</blockquote>
+这fate也不是只代表fsn啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  gpx234mqx  
+##### 488#       发表于 2022-12-12 20:46
+
+ 本帖最后由 gpx234mqx 于 2022-12-12 20:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">月姫R另一半不出，红赤朱，五月啥的角色根本不会出啊
+
+没歌月十夜，白莲啥的更不会出了
+
+只能是FGO顶上，下次加鬼系角色吧
+
+
+
+*****
+
+####  蓮華  
+##### 489#       发表于 2022-12-12 20:52
+
+你月姬R下部几年出？4年，下个十年？你这个MeltyBlood寿命准备多久？steam上还有活人么
+
+本身就做得够垃圾了，还恶心这批死忠
+
+*****
+
+####  gpx234mqx  
+##### 490#       发表于 2022-12-12 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910970&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-12 20:52</a>
+
+你月姬R下部几年出？4年，下个十年？你这个MeltyBlood寿命准备多久？steam上还有活人么
+
+本身就做得够垃圾了 ...</blockquote>
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的
+
+
+
+*****
+
+####  佐伯香織  
+##### 491#       发表于 2022-12-12 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911021&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-12 20:56</a>
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的</blockquote>
+靠职业联赛撑着的，而且这两玩家数比月姬高太多了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蓮華  
+##### 492#       发表于 2022-12-12 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911021&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-12 20:56</a>
+
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的</blockquote>
+撒泡尿照照镜子，MBTL是街霸和铁拳么
+
+
+
+*****
+
+####  rsgdn  
+##### 493#       发表于 2022-12-12 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剣崎比留子  
+##### 494#       发表于 2022-12-12 21:19
+
+出个有珠和两仪式会是与现在截然相反的结果吧
+
+我看其实也不是不知道mb玩家想要什么，憋着卖有料dlc罢了
+
+
+
+*****
+
+####  TANA  
+##### 495#       发表于 2022-12-12 21:27
+
+ 本帖最后由 TANA 于 2022-12-12 21:28 编辑 
+
+这游戏现在都已经没什么人玩了吧，搜不到几个房间
+
+出个新角色也就是打一遍剧情模式看看大招的程度
+
+质量不行，没救
+
+梦里能拖到月姬re里篇发售
+
+
+
+*****
+
+####  cuive  
+##### 496#       发表于 2022-12-12 21:45
+
+<img src="https://img.saraba1st.com/forum/202212/12/214513im5x7c0jl00glc5j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4ED53753-BC10-464A-82A3-22C0FBDE6D2B.jpeg</strong> (295.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/214513iqzy8ff7b1r0eoxq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C18768EA-FB5E-4F00-B919-40BEDE6FE90D.jpeg</strong> (89.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/214513vk33i6jsj3wggm1z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>854D79D5-A625-453E-832C-8082F7F09EA4.jpeg</strong> (111.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/214514vbbn8ubes8eale7e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7D85C8EB-2651-4AB1-A234-0F2E1017690D.jpeg</strong> (104.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/214514r0skhf1y4h41dkhc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B4D8288E-5025-4AB0-A5C1-25F8637F79E6.jpeg</strong> (159.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/214514nhqn6wwh6uyr5xuk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>05B29DDF-5E17-4B8E-A901-261011851722.jpeg</strong> (97.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:45 上传
+
+
+
+*****
+
+####  不垃圾屌丝  
+##### 497#       发表于 2022-12-12 21:56
+
+只要菌皇更新日记，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  gpx234mqx  
+##### 498#       发表于 2022-12-13 10:31
+
+<blockquote>剣崎比留子 发表于 2022-12-12 21:19
+出个有珠和两仪式会是与现在截然相反的结果吧
+
+我看其实也不是不知道mb玩家想要什么，憋着卖有料dlc罢了
+
+ ...</blockquote>
+无料dlc，那有啥好说的，又不收你钱
+
+
+
+*****
+
+####  gpx234mqx  
+##### 499#       发表于 2022-12-13 10:32
+
+<blockquote>蓮華 发表于 2022-12-12 21:06
+撒泡尿照照镜子，MBTL是街霸和铁拳么</blockquote>
+只要不停出无料dlc角色，怕个屁啊
+
+*****
+
+####  节艾司  
+##### 500#       发表于 2022-12-13 10:40
+
+那么月r加谁
+
+
+
+*****
+
+####  岸浪白野  
+##### 501#       发表于 2022-12-13 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917124&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-13 10:32:07</a>
+只要不停出无料dlc角色，怕个屁啊</blockquote>已经结束喇，最后的免费DLC，后面付费DLC了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  岸浪白野  
+##### 502#       发表于 2022-12-13 12:09
+
+<img src="https://img.saraba1st.com/forum/202212/13/120829ettn8nh572i598wv.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221213120811.jpg</strong> (174.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 12:08 上传
+
+不过排成这样，后面再怎么塞人呢？
+
+
+
+*****
+
+####  小李子大脸猫  
+##### 503#       发表于 2022-12-13 12:36
+
+原有选人界面UI放大缩小，或者第二季开启重新设计就搞定了
+
+
+
+*****
+
+####  岸浪白野  
+##### 504#       发表于 2022-12-13 12:46
+
+<img src="https://img.saraba1st.com/forum/202212/13/124420qccdfpqvcdvvpeje.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221213124327.png</strong> (344.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/13/124439l62d9ops6t662tp0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221213124334.png</strong> (141.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 12:44 上传
+
+不过看到欧美有这样说的，还有8个位置？
+
+
+
+*****
+
+####  Marro  
+##### 505#       发表于 2022-12-13 13:36
+
+<blockquote>gpx234mqx 发表于 2022-12-12 20:56
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的</blockquote>
+你ip就没那个本事街霸5初版那么垃圾还能活除了ip原因还有就是公司是卡表，铁拳更是运营楷模已经卖了1000万份了，月姬格斗可没办法比
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 506#       发表于 2022-12-13 21:30
+
+牛若丸演示出了，看起来是强角色
+
+
+
+*****
+
+####  Porsche  
+##### 507#       发表于 2022-12-13 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919043&amp;ptid=2026924" target="_blank">岸浪白野 发表于 2022-12-13 12:46</a>
+不过看到欧美有这样说的，还有8个位置？</blockquote>
+根本不用这么纠结这个，直接加个滚动箭头完事了
+
+
+
+*****
+
+####  猫坤  
+##### 508#         楼主| 发表于 2022-12-14 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58926951&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-13 21:30</a>
+
+牛若丸演示出了，看起来是强角色</blockquote>
+感觉还是大家都差不多……
+
+
+
+*****
+
+####  米澤穂信  
+##### 509#       发表于 2022-12-14 08:22
+
+每个角色都一样，用起来有什么差别
+
+*****
+
+####  狗屁不通  
+##### 510#       发表于 2022-12-14 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917112&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-13 10:31</a>
+无料dlc，那有啥好说的，又不收你钱</blockquote>
+这傻逼游戏初始才几个角色啊，不出免费dlc好意思卖这游戏吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Porsche  
+##### 511#       发表于 2022-12-14 08:43
+
+这游戏如果一开始就叫什么型月大乱斗，又能继承点mb的系统和人物，说不定现在一片和平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk86  
+##### 512#       发表于 2022-12-14 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931005&amp;ptid=2026924" target="_blank">狗屁不通 发表于 2022-12-14 08:31</a>
+
+这傻逼游戏初始才几个角色啊，不出免费dlc好意思卖这游戏吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
+为啥不好意思卖？不喜欢月姬格斗的，谁会为几个dlc角色买游戏
+
+
+
+*****
+
+####  狗屁不通  
+##### 513#       发表于 2022-12-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931188&amp;ptid=2026924" target="_blank">sk86 发表于 2022-12-14 08:50</a>
+为啥不好意思卖？不喜欢月姬格斗的，谁会为几个dlc角色买游戏</blockquote>
+这几个免费dlc角色坑位占的本来就该是首发就有的角色数量，现在首发做不完了后续才补更新我是还要感谢他法棍是吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  米澤穂信  
+##### 514#       发表于 2022-12-14 11:42
+
+初始14个，女仆占三个，军刀占一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Gundamslave  
+##### 515#       发表于 2022-12-14 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933947&amp;ptid=2026924" target="_blank">狗屁不通 发表于 2022-12-14 11:38</a>
+这几个免费dlc角色坑位占的本来就该是首发就有的角色数量，现在首发做不完了后续才补更新我是还要感谢他 ...</blockquote>
+当然了，mb可是fgo老爷心善赏的。
+你有机会玩上mb都得好好感谢fgo老爷。
+再说了，mb也不过是月姬r的附赠品。
+真是升米恩斗米仇，喂不饱的狼。
+
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 516#       发表于 2022-12-14 18:41
+
+<img src="https://img.saraba1st.com/forum/202212/14/184049v2k242r422lk3lqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 18:40 上传
+
+喜欢我fgo学园fgo格斗吗
+
+
+
+*****
+
+####  gpx234mqx  
+##### 517#       发表于 2022-12-14 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933947&amp;ptid=2026924" target="_blank">狗屁不通 发表于 2022-12-14 11:38</a>
+
+这几个免费dlc角色坑位占的本来就该是首发就有的角色数量，现在首发做不完了后续才补更新我是还要感谢他 ...</blockquote>
+搞啥啊
+
+原版MB不也才14个角色<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  蓮華  
+##### 518#       发表于 2022-12-14 19:53
+
+笑死，怎么不拿二十年前才6个角色的无印出来比，多长脸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狗屁不通  
+##### 519#       发表于 2022-12-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58940804&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-14 19:19</a>
+搞啥啊
+
+原版MB不也才14个角色，啥叫首发就有角色数量</blockquote>
+mb是tm的同人游戏，你个抱aniplex大腿的商业公司要跟同人格斗游戏比了？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红魔馆的糖  
+##### 520#       发表于 2022-12-14 20:00
+
+同人作可比这一作有特色多了，以这一作系统能把角色做到这么没意思应该反思一下别的部分了
+
+*****
+
+####  八木沼了一  
+##### 521#       发表于 2022-12-14 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58941411&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-14 20:00</a>
+
+同人作可比这一作有特色多了，以这一作系统能把角色做到这么没意思应该反思一下别的部分了 ...</blockquote>
+能把所有人都做成一个感觉，大招血量都完全不变，老卵，平衡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 522#       发表于 2022-12-15 13:51
+
+有个莲的剪影，应该是付费dlc了
+
+
+
+*****
+
+####  新屋  
+##### 523#       发表于 2022-12-15 15:23
+
+aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了。
+
+现在新版热度还好吗
+
+
+
+*****
+
+####  kisskick  
+##### 524#       发表于 2022-12-15 15:50
+
+看了看，新教程很不错啊。还教摸奖。
+
+
+
+*****
+
+####  天妇罗  
+##### 525#       发表于 2022-12-15 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58934309&amp;ptid=2026924" target="_blank">Gundamslave 发表于 2022-12-14 12:01</a>
+
+当然了，mb可是fgo老爷心善赏的。
+
+你有机会玩上mb都得好好感谢fgo老爷。
+
+再说了，mb也不过是月姬r的附赠 ...</blockquote>
+就mbtl这屌样子，比aacc差远了，还真没人稀罕玩它
+
+*****
+
+####  TANA  
+##### 526#       发表于 2022-12-15 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58952053&amp;ptid=2026924" target="_blank">新屋 发表于 2022-12-15 15:23</a>
+
+aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了。
+
+现在新版热度还好吗 ...</blockquote>
+凉，刚更新完都没什么人
+
+
+
+*****
+
+####  红魔馆的糖  
+##### 527#       发表于 2022-12-15 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58952053&amp;ptid=2026924" target="_blank">新屋 发表于 2022-12-15 15:23</a>
+aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了。
+
+现在新版热度还好吗 ...</blockquote>
+搜房的话零星有几个的程度吧
+
+
+
+*****
+
+####  岸浪白野  
+##### 528#       发表于 2022-12-15 17:43
+
+<img src="https://img.saraba1st.com/forum/202212/15/174017knkepzygogfim4k9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173209.png</strong> (266.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174025m4daq1vwyr4byod1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173441.png</strong> (187.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174119a5bi5x6bhwitwt5x.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173200.png</strong> (283 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174134u9re66s04c6shlju.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173429.png</strong> (39.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174150cw8y1hquj2wqpup8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173642.png</strong> (28.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<strong>BOSS RUSH4的最后出现了黑莲，</strong>有将歌月十夜在mb里做的可能性？不过首先明年付费dlc见了
+
+*****
+
+####  岸浪白野  
+##### 529#       发表于 2022-12-15 17:47
+
+<img src="https://img.saraba1st.com/forum/202212/15/174651xw8dkzj3vvyz9kjh.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221215174609.jpg</strong> (153.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:46 上传
+
+
+
+*****
+
+####  gpx234mqx  
+##### 530#       发表于 2022-12-15 20:27
+
+ 本帖最后由 gpx234mqx 于 2022-12-15 20:30 编辑 
+
+哦哦。希耶尔认出伯爵的黑炎是第八秘迹会的净化之炎了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+果然是教会藏起来的神迹嘛
+
+伯爵也认出希耶尔的武装了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zooandtoo  
+##### 531#       发表于 2022-12-15 23:53
+
+伯爵线还是有点信息的
+
+牛若就真的。。。搞笑也轮不到你来吧
+
+真要说抬了手秋叶？
+
+
+
+*****
+
+####  Hqchan  
+##### 532#       发表于 2022-12-16 02:14
+
+BOSS RUSH4 C志贵出场的一瞬间幻视/听七夜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说之前是在哪里看到，牛若丸可以引出七夜的线索，我玩着时候也觉得牛若丸的一些动作和七夜有点像，但结果明明剧情都是往秋叶家推的都没提到这方面相关，有点白期待了
+
+
+
+*****
+
+####  gpx234mqx  
+##### 533#       发表于 2022-12-16 08:25
+
+boss模式的猫arc的6连眼睛光线好强
+
