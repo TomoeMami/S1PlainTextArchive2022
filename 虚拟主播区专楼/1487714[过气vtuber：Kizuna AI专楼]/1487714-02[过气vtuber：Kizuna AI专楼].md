@@ -1451,3 +1451,13 @@ B站突然直播了，吓了我一跳。细看发现是女儿kzn的演唱会。�
 
 个人觉得更适合做电波点四格风般的动画，看PV是多人组合偶像类的方向也行吧，只要做得好。但似乎都和现在现实分出的几个形象都没啥关系就是了。
 
+*****
+
+####  mes  
+##### 1669#       发表于 2022-12-17 15:39
+
+<[img src="https://i.postimg.cc/MfjwPWhT/image.jpg" referrerpolicy="no-referrer">
+<[img src="https://i.postimg.cc/1f5XRP0g/image.jpg" referrerpolicy="no-referrer">
+
+反正没人发
+
