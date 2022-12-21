@@ -3691,3 +3691,10 @@ selen笑起来气势太足了<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  M1NG  
+##### 1839#       发表于 2022-12-18 20:56
+
+en1属实是高强度患病
+
