@@ -2151,3 +2151,171 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 打起来不舒服主要还是角色多样性和平衡性的问题，花里胡哨武器一大圈实用的没几个，然后现在装备获取的残疾程度直接决定了能不能上难度全看脸
 
+*****
+
+####  猎户座  
+##### 204#       发表于 2022-12-15 00:06
+
+求地图，求武装搭配，现在有比较系统的 站点了吗？  b站上一些up主的太细碎了，听着好累
+
+
+
+*****
+
+####  DLSDFY  
+##### 205#         楼主| 发表于 2022-12-15 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944829&amp;ptid=1951151" target="_blank">猎户座 发表于 2022-12-15 00:06</a>
+
+求地图，求武装搭配，现在有比较系统的 站点了吗？  b站上一些up主的太细碎了，听着好累 ...</blockquote>
+[https://darktide.gameslantern.com/](https://darktide.gameslantern.com/)
+
+看看这个?
+
+
+
+*****
+
+####  FLZB  
+##### 206#       发表于 2022-12-15 23:35
+
+等了一周结果最后又跳票一天的更新，说好的新武器和新图通通没有，除了挤牙膏开放的洗专长功能大概就剩一个（再次）削弱动力剑了，我现在是真的觉得肥鲨这游戏是做来整蛊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  夜莺0093  
+##### 207#       发表于 2022-12-16 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808736&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-7 03:44</a>
+
+啥时候出个战斗修女为主角的act/arpg/tps啊
+
+—— 来自 S1Fun</blockquote>
+ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺花，玩家信仰值满了直接一键Henshin活圣人用各种专属技能成片的往桌子下面扫人。
+
+然后战棋的BattleSector和4X的Gladius都要出战斗修女的DLC。
+
+
+
+*****
+
+####  boxloli  
+##### 208#       发表于 2022-12-17 11:11
+
+傻篮子游戏出两个新武器还要拍个片显摆一下，搞笑的吧
+
+
+
+*****
+
+####  Paradox7  
+##### 209#       发表于 2022-12-17 14:48
+
+太弱智了 带着3个bot打难度三 第一波潮bot全倒了 这什么弱智ai
+
+
+
+*****
+
+####  Paradox7  
+##### 210#       发表于 2022-12-17 14:57
+
+老兵毕业装备和天赋应该是什么样的有没有攻略啊，我一搜全是正式发售前的攻略
+
+
+
+*****
+
+####  xgazer  
+##### 211#       发表于 2022-12-17 15:09
+
+鼠疫2打高难度抽箱子的系统怎么也比现在刷商店满眼各种型号的自动抢要好吧，现在上线就为了打个周常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  boxloli  
+##### 212#       发表于 2022-12-17 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58978972&amp;ptid=1951151" target="_blank">Paradox7 发表于 2022-12-17 14:57</a>
+
+老兵毕业装备和天赋应该是什么样的有没有攻略啊，我一搜全是正式发售前的攻略 ...</blockquote>
+如果是走爆弹枪的话天赋121331
+
+其他枪10看手感可以点另外两个 25点2 30有车队点2没有还是点1
+
+
+
+*****
+
+####  Paradox7  
+##### 213#       发表于 2022-12-17 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58979196&amp;ptid=1951151" target="_blank">boxloli 发表于 2022-12-17 15:18</a>
+
+如果是走爆弹枪的话天赋121331
+
+其他枪10看手感可以点另外两个 25点2 30有车队点2没有还是点1 ...</blockquote>
+好的谢谢，我这一直刷不出动力剑和爆弹枪，都30级了合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  boxloli  
+##### 214#       发表于 2022-12-17 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981462&amp;ptid=1951151" target="_blank">Paradox7 发表于 2022-12-17 18:28</a>
+
+好的谢谢，我这一直刷不出动力剑和爆弹枪，都30级了合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">合理，喜欢我购物清单游戏吗
+
+刷不出心仪武器最好也先购入你能买到装等最高的装备，会有效提高后续得到武器的装等上限
+
+
+
+*****
+
+####  Paradox7  
+##### 215#       发表于 2022-12-17 20:18
+
+我艹 我这两天几十把了都没出帝皇赠礼 一查好像是出bug了
+
+
+
+*****
+
+####  FLZB  
+##### 216#       发表于 2022-12-17 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58978903&amp;ptid=1951151" target="_blank">Paradox7 发表于 2022-12-17 14:48</a>
+
+太弱智了 带着3个bot打难度三 第一波潮bot全倒了 这什么弱智ai</blockquote>
+这个更新直接把bot改成弱智，之前打潮不行但好歹会跟着玩家提供掩护，现在要么站着不走要么突然远离玩家。
+
+我见过最离谱的是队友在对枪，附近没有任何小怪，bot莫名其妙跑过去一刀砍爆队友旁边的桶，当时还以为是进了个傻卵在整活，但仔细一看是bot，我不知道怎么评价<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Paradox7  
+##### 217#       发表于 2022-12-17 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58983043&amp;ptid=1951151" target="_blank">FLZB 发表于 2022-12-17 20:32</a>
+
+这个更新直接把bot改成弱智，之前打潮不行但好歹会跟着玩家提供掩护，现在要么站着不走要么突然远离玩家 ...</blockquote>
+我现在都不和bot打了 队内有bot的时候最怕bot引到恶魔
+
+
+
+*****
+
+####  m0307m  
+##### 218#       发表于 2022-12-18 09:08
+
+不是出bug，帝皇赠礼是每周10个，你拿满后等周常商店更新后才会新的10个
+
