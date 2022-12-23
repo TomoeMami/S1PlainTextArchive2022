@@ -4248,3 +4248,13 @@ prpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  厄斯沃穆  
+##### 433#         楼主| 发表于 2022-12-20 16:33
+
+哦 豁
+<img src="https://p.sda1.dev/8/dfb0fbc77cd727d780ef9efc2022f98f/CMP_20221220163311568.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
