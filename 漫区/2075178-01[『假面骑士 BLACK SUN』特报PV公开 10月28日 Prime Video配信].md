@@ -4260,3 +4260,49 @@ IGN7分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" ref
 
 越想越觉得black sun没那么差，为什么不是现实题材套假面骑士呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  selain.meneth  
+##### 383#       发表于 2022-12-20 16:36
+
+观感太差，还不如把TV版BLACK剧情重新整理一下更好。
+
+
+
+*****
+
+####  7sevenseven  
+##### 384#       发表于 2022-12-20 16:59
+
+什么玩意
+
+我有多少年没见过这种节奏慢的要死，信息量过少的片了
+
+
+
+*****
+
+####  hkguty  
+##### 385#       发表于 2022-12-20 19:00
+
+很喜欢对这片的一个评论就是：并不是一部烂片搞了点赤军浪潮时的鸟蛋事它就不是一部烂片了
+
+
+
+*****
+
+####  rzsxd  
+##### 386#       发表于 2022-12-22 02:31
+
+感觉我看得比较粗糙 很多地方没看懂 为什么一开始要给小哥俩做人体改造手术 还说是逼不得已。而且拿帝王石的时候是从一大块上取下来的一个尖儿。那剩下的帝王石哪儿去了啊。而且帝王石到底是哪儿来的。是创世王体内提取的吗。奥利弗为啥要把红帝王石给那对日本夫妻。
+
+*****
+
+####  eyeego  
+##### 387#       发表于 2022-12-22 03:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042547&amp;ptid=2075178" target="_blank">rzsxd 发表于 2022-12-22 02:31</a>
+感觉我看得比较粗糙 很多地方没看懂 为什么一开始要给小哥俩做人体改造手术 还说是逼不得已。而且拿帝王石 ...</blockquote>
+不用想太多 这片子很多地方都是为了致敬原作 然后又因为魔改了怪人起源这个基础设定 很多圆不上的剧情就在那硬拗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于黑人那里应该是预感到了要被人抄家了所以先送掉一块<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
