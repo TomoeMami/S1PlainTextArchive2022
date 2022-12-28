@@ -1038,3 +1038,448 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 太太们比女儿骚<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+*****
+
+####  角龙大剑  
+##### 100#       发表于 2022-12-22 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">挖一下，明天要发售了
+
+*****
+
+####  huoguoshan23  
+##### 101#       发表于 2022-12-22 11:41
+
+🐏了，不能第一时间奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  azccc52  
+##### 102#       发表于 2022-12-22 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59045298&amp;ptid=2094442" target="_blank">huoguoshan23 发表于 2022-12-22 11:41</a>
+🐏了，不能第一时间被太太们奖励了</blockquote>
+＋1实在是不凑巧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zzy516232108  
+##### 103#       发表于 2022-12-22 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全luo待鸡中
+
+
+
+*****
+
+####  名字已被吃  
+##### 104#       发表于 2022-12-22 12:35
+
+这几天才知道krkr模拟器，原来手机也能模拟器玩，然后试了一下能玩第三部魅魔，不知道最新这部行不，我看123都是同一个引擎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  leo204672099  
+##### 105#       发表于 2022-12-22 12:48
+
+等全CG
+
+*****
+
+####  leo204672099  
+##### 106#       发表于 2022-12-22 12:49
+
+等全CG
+
+
+
+*****
+
+####  isa2456  
+##### 107#       发表于 2022-12-22 16:20
+
+怎么还没热心人上传<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">救救牛子
+
+
+
+*****
+
+####  Philister  
+##### 108#       发表于 2022-12-22 16:26
+
+昨晚有点症状自测出来是阴的，但今天午觉睡醒就发烧了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我超，别
+
+
+
+*****
+
+####  黑上シグマ  
+##### 109#       发表于 2022-12-22 16:53
+
+<blockquote>引用第106楼isa2456于2022-12-22 16:20发表的  :
+
+怎么还没热心人上传救救牛子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你猜今天几号？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+*****
+
+####  isa2456  
+##### 110#       发表于 2022-12-22 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59048619&amp;ptid=2094442" target="_blank">黑上シグマ 发表于 2022-12-22 16:53</a>
+你猜今天几号？
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">看上面时间看错了，白 等 了
+
+
+
+*****
+
+####  nihilxp  
+##### 111#       发表于 2022-12-23 12:43
+
+有人玩到了吗
+
+*****
+
+####  leina0602  
+##### 112#       发表于 2022-12-23 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59057902&amp;ptid=2094442" target="_blank">nihilxp 发表于 2022-12-23 12:43</a>
+
+有人玩到了吗</blockquote>
+还没有放流，看了一眼4chan，鬼佬们也急得不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  纱布光环  
+##### 113#       发表于 2022-12-23 13:18
+
+这作只卖实体版放流是不是要很久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  elven119  
+##### 114#       发表于 2022-12-23 13:35
+
+只卖实体版，起码一周以后，我禁欲3个月了，就为了等它。结果只卖实体版
+
+*****
+
+####  g54088  
+##### 115#       发表于 2022-12-23 13:38
+
+难怪网贩平台没看到，只卖实体版是怎么想的？想先冲一波实体销量？还是电子版等steam一起上？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  gaayas  
+##### 116#       发表于 2022-12-23 14:29
+
+先卖卖各种周边吧，不上网站卖也不用被平台抽成，先赚一波？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">总之慢慢等吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  prayto7f  
+##### 117#       发表于 2022-12-23 16:37
+
+今天还有黑兽外传<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">不过坛友都喜欢那么大的嘛
+
+
+
+*****
+
+####  虚无连斩  
+##### 118#       发表于 2022-12-23 16:45
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  虚无连斩  
+##### 119#       发表于 2022-12-23 16:46
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  虚无连斩  
+##### 120#       发表于 2022-12-23 16:46
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  慕容断月  
+##### 121#       发表于 2022-12-23 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058455&amp;ptid=2094442" target="_blank">g54088 发表于 2022-12-23 13:38</a>
+
+难怪网贩平台没看到，只卖实体版是怎么想的？想先冲一波实体销量？还是电子版等steam一起上？
+
+—— 来自 H ...</blockquote>
+steam目前为止就第一作，后面天知道啥时候
+
+
+
+*****
+
+####  rootss  
+##### 122#       发表于 2022-12-23 18:40
+
+CNM为什么我今天阳了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9700, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+
+*****
+
+####  名字已被吃  
+##### 123#       发表于 2022-12-23 18:46
+
+我看第三部好像也是半年后才上dl版的样子
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  zero12  
+##### 124#       发表于 2022-12-23 19:00
+
+不知道什么时候放流，很急
+
+
+
+*****
+
+####  Winder07  
+##### 125#       发表于 2022-12-23 19:14
+
+之前作品的cg包有吗
+
+
+
+*****
+
+####  leo204672099  
+##### 126#       发表于 2022-12-23 20:47
+
+<blockquote>Winder07 发表于 2022-12-23 19:14
+之前作品的cg包有吗</blockquote>
+粉红APP就有
+
+
+
+*****
+
+####  gaayas  
+##### 127#       发表于 2022-12-23 21:15
+
+炎孕吧有人放流了。。好快的速度<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  g54088  
+##### 128#       发表于 2022-12-23 21:59
+
+游戏暂时玩不了，蹲一个cg包。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  leina0602  
+##### 129#       发表于 2022-12-23 22:00
+
+nyaa上有了
+
+
+
+*****
+
+####  modedd  
+##### 130#       发表于 2022-12-23 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59064059&amp;ptid=2094442" target="_blank">leina0602 发表于 2022-12-23 22:00:35</a>
+nyaa上有了</blockquote>nyaa的最新网址是啥，求<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  leina0602  
+##### 131#       发表于 2022-12-23 22:56
+
+ 本帖最后由 leina0602 于 2022-12-23 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59064795&amp;ptid=2094442" target="_blank">modedd 发表于 2022-12-23 22:50</a>
+
+nyaa的最新网址是啥，求
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+nyaa.si，然后点上面的fap有百度盘会员还是用贴吧的资源吧，nyaa做种的人还不多
+
+*****
+
+####  leo204672099  
+##### 132#       发表于 2022-12-23 22:57
+
+贴吧有资源了
+
+
+
+*****
+
+####  g54088  
+##### 133#       发表于 2022-12-23 23:16
+
+单看cg有点期待落空，老妈组的动图张数比女儿组少太多了。然后多p的动图也只有一个了，老妈组没有。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Toby_dak  
+##### 134#       发表于 2022-12-23 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59064795&amp;ptid=2094442" target="_blank">modedd 发表于 2022-12-23 23:50</a>
+
+nyaa的最新网址是啥，求
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+里界资源要这个。
+
+sukebei.nyaa.si/
+
+
+
+*****
+
+####  YFIIII  
+##### 135#       发表于 2022-12-23 23:44
+
+易恒泰能看cg了
+
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 136#       发表于 2022-12-24 03:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59065121&amp;ptid=2094442" target="_blank">g54088 发表于 2022-12-23 23:16</a>
+单看cg有点期待落空，老妈组的动图张数比女儿组少太多了。然后多p的动图也只有一个了，老妈组没有。
+
+——  ...</blockquote>
+虽然但是，炎孕这几作一直都是这样的，不然也不会被说被小粥姐妹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  poipanchao  
+##### 137#       发表于 2022-12-24 12:22
+
+感觉这作真不行……各种姿势、play复用
+
+虽然之前的画师不能说没有缺点，但比这作这个强太多了
+
+我记得说是23年还有一作老画师的游戏，期待下吧
+
+
+
+*****
+
+####  火的意志  
+##### 138#       发表于 2022-12-24 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59066879&amp;ptid=2094442" target="_blank">培根芝士蛋堡XD 发表于 2022-12-24 03:53</a>
+虽然但是，炎孕这几作一直都是这样的，不然也不会被说被小粥姐妹爆了 ...</blockquote>
+我玩下来感觉小粥动态也不多，剧情是一样的寡淡，不知道赢在哪儿了
+
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 139#       发表于 2022-12-24 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59069692&amp;ptid=2094442" target="_blank">火的意志 发表于 2022-12-24 13:36</a>
+
+我玩下来感觉小粥动态也不多，剧情是一样的寡淡，不知道赢在哪儿了</blockquote>
+二代我还没玩，一代的动态应该是和炎孕的数量差不多的，关键镜头、姿势、play用的好，而且动态的动作更丰富，炎孕基本就是一个动作用到尾还不带换的，小粥还有侧面图
+
+
+
+*****
+
+####  isa2456  
+##### 140#       发表于 2022-12-24 17:47
+
+看见白毛的时候直接那啥了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大河赤冀和小海湾都一般
+
+
+
+*****
+
+####  gaayas  
+##### 141#       发表于 2022-12-24 22:54
+
+最戳我的还是理事长。。另外加了几个妈，直接把那些路人角色都整没了，合着也没加啥太多量<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  herryk159  
+##### 142#       发表于 2022-12-25 12:24
+
+ 本帖最后由 herryk159 于 2022-12-25 12:27 编辑 
+
+该爆炒雌小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+才看到楼主说不要贴图，编辑了
+
