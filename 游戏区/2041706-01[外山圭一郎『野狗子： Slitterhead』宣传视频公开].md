@@ -770,3 +770,40 @@ A9VG：
 <img src="https://p.sda1.dev/8/f281b2fb27ba298b1c3cc4e92d85e4b1/20221217_115253.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/33fa6eb76b17ee2b617f1380cd20794c/20221217_115255.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 76#         楼主| 发表于 2022-12-27 22:39
+
+Bokeh Game Studio 外山圭一郎氏
+
+2023年のキーワード：正念場
+
+2023年の抱負：
+
+Bokeh Game Studioの初回作である『野狗子: Slitterhead』の制作が佳境を迎えます。
+
+その後の行く末を大きく左右するものなので、気を引き締めて臨みます。スタート時は旧知のベテランがほとんどでしたが、昨今は若手を積極的に取り入れるようにしています。堅実さとチャレンジ精神を併せ持ったスタジオ作りに注力していきます！
+
+近況報告：
+
+当面はスタジオ一丸となって制作に集中する日々ですが、並行して公式YouTubeにてさまざまな発信をしております。
+
+
+
+*****
+
+####  Gundamslave  
+##### 77#       发表于 2022-12-27 23:04
+
+这么顺利吗？
+
+
+
+*****
+
+####  你可以试试  
+##### 78#       发表于 2022-12-27 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还以为是狗子模拟器
+
