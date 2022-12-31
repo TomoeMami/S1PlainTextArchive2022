@@ -1676,3 +1676,12 @@ DROD系列是Bean and Nothingness的祖师爷，同样有丰富的机制交互�
 
 请问仰冲异界Obduction评价如何啊
 
+*****
+
+####  infinitesimal7  
+##### 114#       发表于 2022-12-29 01:01
+
+N Step Steve Part 2出了，评价非常好，量比5SS和N SS Part 1都大得多
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
